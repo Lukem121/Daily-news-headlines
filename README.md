@@ -1,5 +1,3 @@
-### **Coronavirus Northern Ireland: Department of Health reports one further Covid-19 death and 934 new cases - Belfast Live**
-#### Fri, 02 Oct 2020 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LmJlbGZhc3RsaXZlLmNvLnVrL25ld3MvYmVsZmFzdC1uZXdzL2Nvcm9uYXZpcnVzLW5vcnRoZXJuLWlyZWxhbmQtZGVwYXJ0bWVudC1oZWFsdGgtMTkwMzg1NDbSAWtodHRwczovL3d3dy5iZWxmYXN0bGl2ZS5jby51ay9uZXdzL2JlbGZhc3QtbmV3cy9jb3JvbmF2aXJ1cy1ub3J0aGVybi1pcmVsYW5kLWRlcGFydG1lbnQtaGVhbHRoLTE5MDM4NTQ2LmFtcA?oc=5)
 ### **White House chief of staff defends briefing reporters without a mask despite Trump's coronavirus test - CNN**
 #### Fri, 02 Oct 2020 16:46:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8wMi9wb2xpdGljcy9tYXJrLW1lYWRvd3MtbWFzay1jb3JvbmF2aXJ1cy9pbmRleC5odG1s0gFUaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMC8xMC8wMi9wb2xpdGljcy9tYXJrLW1lYWRvd3MtbWFzay1jb3JvbmF2aXJ1cy9pbmRleC5odG1s?oc=5)
 ---
