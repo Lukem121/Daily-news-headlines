@@ -112,3 +112,117 @@
 ### **Donald Trump among ‘vulnerable’ population, say virus experts - Financial Times**
 #### Fri, 02 Oct 2020 12:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiP2h0dHBzOi8vd3d3LmZ0LmNvbS9jb250ZW50LzU2Mjc2MGU1LTQzMjEtNGU5ZS04NmIzLTM5MWJiM2VmNTMwMtIBP2h0dHBzOi8vYW1wLmZ0LmNvbS9jb250ZW50LzU2Mjc2MGU1LTQzMjEtNGU5ZS04NmIzLTM5MWJiM2VmNTMwMg?oc=5)
 ---
+### **Senator Ron Johnson tests positive for COVID-19 - WKOW**
+#### Sat, 03 Oct 2020 13:21:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd2tvdy5jb20vMjAyMC8xMC8wMy9zZW5hdG9yLXJvbi1qb2huc29uLXRlc3RzLXBvc2l0aXZlLWZvci1jb3JvbmF2aXJ1cy_SAQA?oc=5)
+---
+### **North Carolina Democratic Senate candidate admits to sending sexual texts to strategist - NBC News**
+#### Sat, 03 Oct 2020 12:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiQFodHRwczovL3d3dy5uYmNuZXdzLmNvbS9wb2xpdGljcy8yMDIwLWVsZWN0aW9uL25vcnRoLWNhcm9saW5hLWRlbW9jcmF0aWMtc2VuYXRlLWNhbmRpZGF0ZS1hZG1pdHMtc2VuZGluZy1zZXh1YWwtdGV4dHMtc3RyYXRlZ2lzdC1uMTI0MTk2MtIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjQxOTYy?oc=5)
+---
+### **How Gender Shapes Presidential Debates — Including Between Two Men - NPR**
+#### Sat, 03 Oct 2020 11:00:35 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMC8wMy85MTkwOTM3MzEvaG93LWdlbmRlci1zaGFwZXMtcHJlc2lkZW50aWFsLWRlYmF0ZXMtaW5jbHVkaW5nLWJldHdlZW4tdHdvLW1lbtIBAA?oc=5)
+---
+### **White House Undergoes Contact Tracing After Trump Tests Positive For Covid | NBC News NOW - NBC News**
+#### Sat, 03 Oct 2020 10:59:47 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9ZUFYTkxZYUtyRWPSAQA?oc=5)
+---
+### **Trump tweets "Going well" after being flown to Walter Reed for COVID-19 treatment - CBS This Morning**
+#### Sat, 03 Oct 2020 11:54:18 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9M0VxVldpSXQwdmfSAQA?oc=5)
+---
+### **Following Falsehoods: A Reporter’s Approach on QAnon - The New York Times**
+#### Sat, 03 Oct 2020 13:51:03 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiPmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjAvMTAvMDMvaW5zaWRlci9xYW5vbi1yZXBvcnRlci5odG1s0gFCaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMC8xMC8wMy9pbnNpZGVyL3Fhbm9uLXJlcG9ydGVyLmFtcC5odG1s?oc=5)
+---
+### **The next steps in President Trump's COVID-19 treatment - CBS This Morning**
+#### Sat, 03 Oct 2020 12:10:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9ZXhuRVRONkl4SWPSAQA?oc=5)
+---
+### **Wisconsin Sen. Ron Johnson tests positive for coronavirus - Fox News**
+#### Sat, 03 Oct 2020 13:18:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3dpc2NvbnNpbi1yb24tam9obnNvbi1wb3NpdGl2ZS1jb3JvbmF2aXJ1c9IBT2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3dpc2NvbnNpbi1yb24tam9obnNvbi1wb3NpdGl2ZS1jb3JvbmF2aXJ1cy5hbXA?oc=5)
+---
+### **Tropical Storm Gamma gaining strength as it heads toward Mexico - ABC News**
+#### Sat, 03 Oct 2020 11:31:59 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vYWJjbmV3cy5nby5jb20vVVMvdHJvcGljYWwtc3Rvcm0tZ2FtbWEtZ2FpbmluZy1zdHJlbmd0aC1oZWFkcy1tZXhpY28vc3Rvcnk_aWQ9NzM0MDI4MTXSAWJodHRwczovL2FiY25ld3MuZ28uY29tL2FtcC9VUy90cm9waWNhbC1zdG9ybS1nYW1tYS1nYWluaW5nLXN0cmVuZ3RoLWhlYWRzLW1leGljby9zdG9yeT9pZD03MzQwMjgxNQ?oc=5)
+---
+### **Alumni of Amy Coney Barrett's school declare opposition - Los Angeles Times**
+#### Sat, 03 Oct 2020 12:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LmxhdGltZXMuY29tL3dvcmxkLW5hdGlvbi9zdG9yeS8yMDIwLTEwLTAzL2FsdW1uaS1hdC1iYXJyZXR0cy11bmRlcmdyYWQtc2Nob29sLXNpZ24tbGV0dGVyLW9mLWNvbmNlcm7SAXpodHRwczovL3d3dy5sYXRpbWVzLmNvbS93b3JsZC1uYXRpb24vc3RvcnkvMjAyMC0xMC0wMy9hbHVtbmktYXQtYmFycmV0dHMtdW5kZXJncmFkLXNjaG9vbC1zaWduLWxldHRlci1vZi1jb25jZXJuP19hbXA9dHJ1ZQ?oc=5)
+---
+### **Covid-19 Sparks New East-West Divide in Germany—30 Years After Reunification - The Wall Street Journal**
+#### Sat, 03 Oct 2020 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvY292aWQtMTktc3BhcmtzLW5ldy1lYXN0LXdlc3QtZGl2aWRlLWluLWdlcm1hbnkzMC15ZWFycy1hZnRlci1yZXVuaWZpY2F0aW9uLTExNjAxNzE3NDAw0gEA?oc=5)
+---
+### **Springfield-Greene Co. Health Dept. warns of concerning new COVID-19 trends - KYTV**
+#### Sat, 03 Oct 2020 02:48:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3Lmt5My5jb20vMjAyMC8xMC8wMy9zcHJpbmdmaWVsZC1ncmVlbmUtY28taGVhbHRoLWRlcHQtd2FybnMtb2YtY29uY2VybmluZy1uZXctY292aWQtMTktdHJlbmRzL9IBAA?oc=5)
+---
+### **Twitter warns removal of tweets rooting for President Trump to die - New York Daily News**
+#### Sat, 03 Oct 2020 00:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm55ZGFpbHluZXdzLmNvbS9uZXdzL25hdGlvbmFsL255LXR3aXR0ZXItcHJlc2lkZW50LXRydW1wLWRlYXRoLTIwMjAxMDAzLXluNmhmbXYzZXpjNGhsdWNrdGdvdm9wZzR1LXN0b3J5Lmh0bWzSAYgBaHR0cHM6Ly93d3cubnlkYWlseW5ld3MuY29tL25ld3MvbmF0aW9uYWwvbnktdHdpdHRlci1wcmVzaWRlbnQtdHJ1bXAtZGVhdGgtMjAyMDEwMDMteW42aGZtdjNlemM0aGx1Y2t0Z292b3BnNHUtc3RvcnkuaHRtbD9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
+### **Nagorno-Karabakh: Turkey's Support For Azerbaijan Challenges Russian Leverage - NPR**
+#### Fri, 02 Oct 2020 21:36:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMC8wMi85MTk0NjcxNjUvbmFnb3Juby1rYXJhYmFraC10dXJrZXlzLXN1cHBvcnQtZm9yLWF6ZXJiYWlqYW4tY2hhbGxlbmdlcy1ydXNzaWFuLWxldmVyYWdl0gEA?oc=5)
+---
+### **Will Big Pharma Acquire Novavax? - Motley Fool**
+#### Sat, 03 Oct 2020 10:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmZvb2wuY29tL2ludmVzdGluZy8yMDIwLzEwLzAzL3dpbGwtYmlnLXBoYXJtYS1hY3F1aXJlLW5vdmF2YXgv0gFOaHR0cHM6Ly93d3cuZm9vbC5jb20vYW1wL2ludmVzdGluZy8yMDIwLzEwLzAzL3dpbGwtYmlnLXBoYXJtYS1hY3F1aXJlLW5vdmF2YXgv?oc=5)
+---
+### **Unique ~$25,000 Tesla Vehicles Planned For Europe & China - CleanTechnica**
+#### Sat, 03 Oct 2020 07:07:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vY2xlYW50ZWNobmljYS5jb20vMjAyMC8xMC8wMy91bmlxdWUtMjUwMDAtdGVzbGEtdmVoaWNsZXMtcGxhbm5lZC1mb3ItZXVyb3BlLWNoaW5hL9IBXmh0dHBzOi8vY2xlYW50ZWNobmljYS5jb20vMjAyMC8xMC8wMy91bmlxdWUtMjUwMDAtdGVzbGEtdmVoaWNsZXMtcGxhbm5lZC1mb3ItZXVyb3BlLWNoaW5hL2FtcC8?oc=5)
+---
+### **At 7.9%, U.S. jobless rate spells trouble for Trump - Reuters**
+#### Sat, 03 Oct 2020 06:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LnJldXRlcnMuY29tL2FydGljbGUvdXNhLWVsZWN0aW9uLWVjb25vbXkvYXQtNzktdXMtam9ibGVzcy1yYXRlLXNwZWxscy10cm91YmxlLWZvci10cnVtcC1pZFVTS0JOMjZPMDZY0gE0aHR0cHM6Ly9tb2JpbGUucmV1dGVycy5jb20vYXJ0aWNsZS9hbXAvaWRVU0tCTjI2TzA2WA?oc=5)
+---
+### **President Trump has COVID-19, heading to Walter Reed military hospital after positive coronavirus diagnosis - WTVD-TV**
+#### Fri, 02 Oct 2020 12:35:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vYWJjMTEuY29tL3BvbGl0aWNzL3ByZXNpZGVudC10cnVtcC1maXJzdC1sYWR5LXRlc3QtcG9zaXRpdmUtZm9yLWNvdmlkLTE5LzY3MTI4Mzkv0gFHaHR0cHM6Ly9hYmMxMS5jb20vYW1wL2RvbmFsZC10cnVtcC1jb3ZpZC1jb3JvbmF2aXJ1cy11cGRhdGUtMTkvNjcxMjgzOS8?oc=5)
+---
+### **Google Pixel 5 alternatives: Galaxy S20 FE, OnePlus 8, and more - Android Authority**
+#### Sat, 03 Oct 2020 13:01:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmFuZHJvaWRhdXRob3JpdHkuY29tL2Jlc3QtZ29vZ2xlLXBpeGVsLTUtYWx0ZXJuYXRpdmVzLTExNjMyOTcv0gFOaHR0cHM6Ly93d3cuYW5kcm9pZGF1dGhvcml0eS5jb20vYmVzdC1nb29nbGUtcGl4ZWwtNS1hbHRlcm5hdGl2ZXMtMTE2MzI5Ny9hbXAv?oc=5)
+---
+### **iPhone 12 Mini: is Apple about to adopt the small moniker for its new iPhones? - TechRadar**
+#### Sat, 03 Oct 2020 06:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiM2h0dHBzOi8vd3d3LnRlY2hyYWRhci5jb20vbmV3cy9pcGhvbmUtMTItbWluaS1sZWFrc9IBN2h0dHBzOi8vd3d3LnRlY2hyYWRhci5jb20vYW1wL25ld3MvaXBob25lLTEyLW1pbmktbGVha3M?oc=5)
+---
+### **Super Smash Bros. Ultimate – Mr. Sakurai Presents "Steve & Alex" - CNET Highlights**
+#### Sat, 03 Oct 2020 14:17:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9RFR3WFBaOFNubXPSAQA?oc=5)
+---
+### **If iOS 14 is causing battery drain, you might need to wipe your iPhone - The Verge**
+#### Fri, 02 Oct 2020 20:21:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LnRoZXZlcmdlLmNvbS8yMDIwLzEwLzIvMjE0OTkyNDMvaW9zLTE0LXdhdGNob3MtNy1iYXR0ZXJ5LWRyYWluLWFwcGxlLWlwaG9uZS13YXRjaC1maXjSAW5odHRwczovL3d3dy50aGV2ZXJnZS5jb20vcGxhdGZvcm0vYW1wLzIwMjAvMTAvMi8yMTQ5OTI0My9pb3MtMTQtd2F0Y2hvcy03LWJhdHRlcnktZHJhaW4tYXBwbGUtaXBob25lLXdhdGNoLWZpeA?oc=5)
+---
+### **Elvis Presley’s only grandson Benjamin Keough buried next to The King at Graceland - Express**
+#### Sat, 03 Oct 2020 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifmh0dHBzOi8vd3d3LmV4cHJlc3MuY28udWsvZW50ZXJ0YWlubWVudC9tdXNpYy8xMzQzMjY1L0VsdmlzLVByZXNsZXktZ3JhbmRzb24tQmVuamFtaW4tS2VvdWdoLWdyYXZlLUdyYWNlbGFuZC1NZWRpdGF0aW9uLUdhcmRlbtIBggFodHRwczovL3d3dy5leHByZXNzLmNvLnVrL2VudGVydGFpbm1lbnQvbXVzaWMvMTM0MzI2NS9FbHZpcy1QcmVzbGV5LWdyYW5kc29uLUJlbmphbWluLUtlb3VnaC1ncmF2ZS1HcmFjZWxhbmQtTWVkaXRhdGlvbi1HYXJkZW4vYW1w?oc=5)
+---
+### **NYPD: Actor Rick Moranis Victim Of Unprovoked Attack Caught On Camera In Manhattan - CBS New York**
+#### Sat, 03 Oct 2020 14:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vbmV3eW9yay5jYnNsb2NhbC5jb20vMjAyMC8xMC8wMy9yaWNrLW1vcmFuaXMtcmFuZG9tLWF0dGFjay1vbi11cHBlci13ZXN0LXNpZGUv0gFaaHR0cHM6Ly9uZXd5b3JrLmNic2xvY2FsLmNvbS8yMDIwLzEwLzAzL3JpY2stbW9yYW5pcy1yYW5kb20tYXR0YWNrLW9uLXVwcGVyLXdlc3Qtc2lkZS9hbXAv?oc=5)
+---
+### **James Bond's 'No Time To Die' has been delayed until 2021 in fresh blow to Hollywood - CNN**
+#### Sat, 03 Oct 2020 12:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8wMy9tZWRpYS9uby10aW1lLXRvLWRpZS1qYW1lcy1ib25kLWRlbGF5ZWQtMjAyMS9pbmRleC5odG1s0gFaaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMC8xMC8wMy9tZWRpYS9uby10aW1lLXRvLWRpZS1qYW1lcy1ib25kLWRlbGF5ZWQtMjAyMS9pbmRleC5odG1s?oc=5)
+---
+### **Tim McGraw & Faith Hill’s Daughter Gracie, 23, Proudly Shows Off Her Stretch Marks & ‘Rolls’ In New Bikini Pics - HollywoodLife**
+#### Sat, 03 Oct 2020 01:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vaG9sbHl3b29kbGlmZS5jb20vMjAyMC8xMC8wMi9ncmFjaWUtbWNncmF3LWJpa2luaS1waWNzLXZpZGVvLWVtYnJhY2VzLXJvbGxzLXRpbS1tY2dyYXctZmFpdGgtaGlsbC_SAW5odHRwczovL2hvbGx5d29vZGxpZmUuY29tLzIwMjAvMTAvMDIvZ3JhY2llLW1jZ3Jhdy1iaWtpbmktcGljcy12aWRlby1lbWJyYWNlcy1yb2xscy10aW0tbWNncmF3LWZhaXRoLWhpbGwvYW1wLw?oc=5)
+---
+### **Bob Gibson, fierce Hall of Fame ace for Cards, dies at 84 - The Associated Press**
+#### Sat, 03 Oct 2020 13:42:35 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3Nwb3J0cy1tbGItYmFzZWJhbGwtc3QtbG91aXMtY2FyZGluYWxzLWJvYi1naWJzb24tYTlhZTFjOWI2MmUwYzA2YjhjODM5MjUzYjY0N2I3MjfSAQA?oc=5)
+---
+### **Georgia vs. Auburn: Prediction, pick, odds, point spread, line, football game, live stream, kickoff time - CBS Sports**
+#### Sat, 03 Oct 2020 12:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMikAFodHRwczovL3d3dy5jYnNzcG9ydHMuY29tL2NvbGxlZ2UtZm9vdGJhbGwvbmV3cy9nZW9yZ2lhLXZzLWF1YnVybi1wcmVkaWN0aW9uLXBpY2stb2Rkcy1wb2ludC1zcHJlYWQtbGluZS1mb290YmFsbC1nYW1lLWxpdmUtc3RyZWFtLWtpY2tvZmYtdGltZS_SAZQBaHR0cHM6Ly93d3cuY2Jzc3BvcnRzLmNvbS9jb2xsZWdlLWZvb3RiYWxsL25ld3MvZ2VvcmdpYS12cy1hdWJ1cm4tcHJlZGljdGlvbi1waWNrLW9kZHMtcG9pbnQtc3ByZWFkLWxpbmUtZm9vdGJhbGwtZ2FtZS1saXZlLXN0cmVhbS1raWNrb2ZmLXRpbWUvYW1wLw?oc=5)
+---
+### **NFL moves Titans and Steelers game to Week 7 due to coronavirus postponement - Yahoo Sports**
+#### Fri, 02 Oct 2020 16:33:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vc3BvcnRzLnlhaG9vLmNvbS9uZmwtbW92ZXMtdGl0YW5zLWFuZC1zdGVlbGVycy1nYW1lLXRvLXdlZWstNy1kdWUtdG8tY29yb25hdmlydXMtcG9zdHBvbmVtZW50LTE2MzMzODQyMS5odG1s0gF8aHR0cHM6Ly9zcG9ydHMueWFob28uY29tL2FtcGh0bWwvbmZsLW1vdmVzLXRpdGFucy1hbmQtc3RlZWxlcnMtZ2FtZS10by13ZWVrLTctZHVlLXRvLWNvcm9uYXZpcnVzLXBvc3Rwb25lbWVudC0xNjMzMzg0MjEuaHRtbA?oc=5)
+---
+### **Patrick Mahomes as your QB or Bill Belichick as your coach: Which would you rather have?| First Take - ESPN**
+#### Sat, 03 Oct 2020 14:00:10 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9dVh3UERxTUJjMkHSAQA?oc=5)
+---
+### **SpaceX aborts liftoff of GPS satellite, continuing streak of launch scrubs - Spaceflight Now**
+#### Sat, 03 Oct 2020 05:49:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vc3BhY2VmbGlnaHRub3cuY29tLzIwMjAvMTAvMDMvc3BhY2V4LWFib3J0cy1saWZ0b2ZmLW9mLWdwcy1zYXRlbGxpdGUtY29udGludWluZy1zdHJlYWstb2YtbGF1bmNoLXNjcnVicy_SAQA?oc=5)
+---
+### **Rocket carrying radish seeds, meats and cheeses – and a $23M toilet – finally launches from Wallops Island to space station - The Virginian-Pilot - The Virginian-Pilot**
+#### Sat, 03 Oct 2020 01:51:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3LnBpbG90b25saW5lLmNvbS9uZXdzL3ZwLW53LXJvY2tldC1sYXVuY2hlcy13YWxsb3BzLWlzbGFuZC0yMDIwMTAwMy01dTVyeHVuNXB6Z2RyY2puNGgycTRxcG94cS1zdG9yeS5odG1s0gGDAWh0dHBzOi8vd3d3LnBpbG90b25saW5lLmNvbS9uZXdzL3ZwLW53LXJvY2tldC1sYXVuY2hlcy13YWxsb3BzLWlzbGFuZC0yMDIwMTAwMy01dTVyeHVuNXB6Z2RyY2puNGgycTRxcG94cS1zdG9yeS5odG1sP291dHB1dFR5cGU9YW1w?oc=5)
+---
+### **Mars, moon in a close encounter high above Las Vegas - Las Vegas Review-Journal**
+#### Sat, 03 Oct 2020 05:51:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnJldmlld2pvdXJuYWwuY29tL2xvY2FsL2xvY2FsLWxhcy12ZWdhcy9tYXJzLW1vb24taW4tYS1jbG9zZS1lbmNvdW50ZXItaGlnaC1hYm92ZS1sYXMtdmVnYXMtMjEzNTk0Ni_SAXRodHRwczovL3d3dy5yZXZpZXdqb3VybmFsLmNvbS9sb2NhbC9sb2NhbC1sYXMtdmVnYXMvbWFycy1tb29uLWluLWEtY2xvc2UtZW5jb3VudGVyLWhpZ2gtYWJvdmUtbGFzLXZlZ2FzLTIxMzU5NDYvYW1wLw?oc=5)
+---
+### **SpaceX scrubs launch of GPS Space Force satellite with two seconds to go - CNET**
+#### Sat, 03 Oct 2020 02:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LmNuZXQuY29tL25ld3Mvc3BhY2V4LXNjcnVicy1sYXVuY2gtb2YtZ3BzLXNwYWNlLWZvcmNlLXNhdGVsbGl0ZS13aXRoLXR3by1zZWNvbmRzLXRvLWdvL9IBbmh0dHBzOi8vd3d3LmNuZXQuY29tL2dvb2dsZS1hbXAvbmV3cy9zcGFjZXgtc2NydWJzLWxhdW5jaC1vZi1ncHMtc3BhY2UtZm9yY2Utc2F0ZWxsaXRlLXdpdGgtdHdvLXNlY29uZHMtdG8tZ28v?oc=5)
+---
+### **Cold, flu or COVID-19? How to tell the difference - Global News**
+#### Sat, 03 Oct 2020 11:00:03 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9RkxLX0lGcXZxOTTSAQA?oc=5)
+---
+### **White House Objects to FDA Plans on Authorizing Covid-19 Vaccine - msnNOW**
+#### Sat, 03 Oct 2020 03:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm1zbi5jb20vZW4tdXMvbmV3cy91cy93aGl0ZS1ob3VzZS1vYmplY3RzLXRvLWZkYS1wbGFucy1vbi1hdXRob3JpemluZy1jb3ZpZC0xOS12YWNjaW5lL2FyLUJCMTlFaVlXP2xpPUJCbmI3S3rSAQA?oc=5)
+---
+### **CDC identifies new COVID-19 syndrome in adults similar to MIS-C in kids - KCCI Des Moines**
+#### Sat, 03 Oct 2020 03:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LmtjY2kuY29tL2FydGljbGUvY2RjLWlkZW50aWZpZXMtbmV3LWNvdmlkLTE5LXN5bmRyb21lLWluLWFkdWx0cy1zaW1pbGFyLXRvLW1pcy1jLWluLWtpZHMvMzQyNTM0MDTSAQA?oc=5)
+---
+### **Ananda Lewis Reveals She Has Stage 3 Breast Cancer, Urges Mammograms for Early Detection - The Root**
+#### Fri, 02 Oct 2020 21:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vdGhlZ2xvd3VwLnRoZXJvb3QuY29tL2FuYW5kYS1sZXdpcy1yZXZlYWxzLXNoZS1oYXMtc3RhZ2UtMy1icmVhc3QtY2FuY2VyLXVyZy0xODQ1MjU1MjI00gFjaHR0cHM6Ly90aGVnbG93dXAudGhlcm9vdC5jb20vYW5hbmRhLWxld2lzLXJldmVhbHMtc2hlLWhhcy1zdGFnZS0zLWJyZWFzdC1jYW5jZXItdXJnLTE4NDUyNTUyMjQvYW1w?oc=5)
+---
