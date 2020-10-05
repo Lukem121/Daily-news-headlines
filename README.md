@@ -340,3 +340,117 @@
 ### **Dr. Fauci says US could begin vaccinating people before end of year - KCCI Des Moines**
 #### Sun, 04 Oct 2020 02:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LmtjY2kuY29tL2FydGljbGUvZHItZmF1Y2ktc2F5cy11cy1jb3VsZC1iZWdpbi12YWNjaW5hdGluZy1wZW9wbGUtYmVmb3JlLWVuZC1vZi15ZWFyLzM0MjYwMTM30gEA?oc=5)
 ---
+### **Live Trump vs Biden Election and Poll Updates - The New York Times**
+#### Mon, 05 Oct 2020 13:57:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiOWh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMC8xMC8wNS91cy90cnVtcC12cy1iaWRlbtIBQmh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMC8xMC8wNS91cy90cnVtcC12cy1iaWRlbi5hbXAuaHRtbA?oc=5)
+---
+### **The Election And A Fresh Obamacare Challenge Loom Over New Supreme Court Term - NPR**
+#### Mon, 05 Oct 2020 09:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMC8wNS85MTk3MDQxNjUvdGhlLWVsZWN0aW9uLWFuZC1hLWZyZXNoLW9iYW1hY2FyZS1jaGFsbGVuZ2UtbG9vbS1vdmVyLW5ldy1zdXByZW1lLWNvdXJ0LXRlcm3SAQA?oc=5)
+---
+### **Trump's COVID-19 Diagnosis And History Of Presidents' Health - NPR**
+#### Mon, 05 Oct 2020 09:05:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMC8wNS85MjAwMjA1OTYvdHJ1bXBzLWNvdmlkLTE5LWRpYWdub3Npcy1yZWNhbGxzLWhpc3Rvcnktb2Ytc2VjcmVjeS1vbi1wcmVzaWRlbnRpYWwtaGVhbHRo0gEA?oc=5)
+---
+### **We binge-watched 15 hours of Amy Barrett's speeches. Here’s what we learned about her judicial philosophy. - USA TODAY**
+#### Mon, 05 Oct 2020 10:01:47 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigwFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIwLzEwLzA1L2FteS1iYXJyZXR0LXdlLXdhdGNoZWQtaG91cnMtaGVyLXNwZWVjaGVzLWhlcmVzLXdoYXQtd2UtbGVhcm5lZC8zNTk2NzMxMDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvMzU5NjczMTAwMQ?oc=5)
+---
+### **Trump's doctors say he could be discharged as early as Monday - CBS Evening News**
+#### Mon, 05 Oct 2020 00:54:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9bVl6bG1OYXRGOU3SAQA?oc=5)
+---
+### **Pence and Harris prep for a debate with suddenly higher stakes - NBC News**
+#### Mon, 05 Oct 2020 09:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzLzIwMjAtZWxlY3Rpb24vcGVuY2UtaGFycmlzLXByZXAtZGViYXRlLXN1ZGRlbmx5LWhpZ2hlci1zdGFrZXMtbjEyNDIwNjTSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI0MjA2NA?oc=5)
+---
+### **Gay men take over Proud Boys hashtag on Twitter 'to reclaim our pride' - USA TODAY**
+#### Mon, 05 Oct 2020 12:25:21 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL25hdGlvbi8yMDIwLzEwLzA1L3Byb3VkLWJveXMtZ2F5LW1lbi11c2UtdHdpdHRlci1yZWNsYWltLXJpZ2h0LXdpbmctZ3JvdXAvMzYyMDkyNDAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzM2MjA5MjQwMDE?oc=5)
+---
+### **Americans fault US govt over foreign powers for virus crisis - The Associated Press**
+#### Mon, 05 Oct 2020 12:25:32 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3ZpcnVzLW91dGJyZWFrLWRvbmFsZC10cnVtcC1oZWFsdGgtdW5pdGVkLXN0YXRlcy1jaGluYS04OWYzZjU2ODgwMmYzMmU2YmFmZGJlZWUxYzUzYWJlMtIBAA?oc=5)
+---
+### **Texas Attorney General Ken Paxton accused of bribery and abusing his office by 7 top aides - The Washington Post**
+#### Mon, 05 Oct 2020 09:33:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMC8xMC8wNS9rZW4tcGF4dG9uLXN0YWZmZXJzLWJyaWJlcnkv0gFcaHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL25hdGlvbi8yMDIwLzEwLzA1L2tlbi1wYXh0b24tc3RhZmZlcnMtYnJpYmVyeS8_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
+### **Republicans gripped by dread as multiple crises swirl - POLITICO**
+#### Mon, 05 Oct 2020 08:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjAvMTAvMDUvcmVwdWJsaWNhbnMtZHJlYWQtY29yb25hdmlydXMtaW5mZWN0aW9ucy00MjYzNTHSAVxodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMC8xMC8wNS9yZXB1YmxpY2Fucy1kcmVhZC1jb3JvbmF2aXJ1cy1pbmZlY3Rpb25zLTQyNjM1MQ?oc=5)
+---
+### **Missiles, rockets and accusations fly as Nagorno Karabakh flare-up burns into second week - CNN**
+#### Mon, 05 Oct 2020 14:02:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8wNS9ldXJvcGUvYXplcmJhaWphbi1hcm1lbmlhLWF0dGFja3MtbmFnb3Juby1rYXJhYmFraC1tb25kYXktaW50bC9pbmRleC5odG1s0gFsaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMC8xMC8wNS9ldXJvcGUvYXplcmJhaWphbi1hcm1lbmlhLWF0dGFja3MtbmFnb3Juby1rYXJhYmFraC1tb25kYXktaW50bC9pbmRleC5odG1s?oc=5)
+---
+### **Pope Francis says coronavirus pandemic has further exposed capitalism’s flaws - MarketWatch**
+#### Sun, 04 Oct 2020 19:38:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm1hcmtldHdhdGNoLmNvbS9zdG9yeS9wb3BlLWZyYW5jaXMtc2F5cy1jb3JvbmF2aXJ1cy1wYW5kZW1pYy1oYXMtZnVydGhlci1leHBvc2VkLWNhcGl0YWxpc21zLWZsYXdzLTIwMjAtMTAtMDTSAX1odHRwczovL3d3dy5tYXJrZXR3YXRjaC5jb20vYW1wL3N0b3J5L3BvcGUtZnJhbmNpcy1zYXlzLWNvcm9uYXZpcnVzLXBhbmRlbWljLWhhcy1mdXJ0aGVyLWV4cG9zZWQtY2FwaXRhbGlzbXMtZmxhd3MtMjAyMC0xMC0wNA?oc=5)
+---
+### **Thailand: Interpol issues new Red Notice for Red Bull heir - ABC News**
+#### Mon, 05 Oct 2020 07:43:21 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vYWJjbmV3cy5nby5jb20vSW50ZXJuYXRpb25hbC93aXJlU3RvcnkvdGhhaWxhbmQtaW50ZXJwb2wtaXNzdWVzLXJlZC1ub3RpY2UtcmVkLWJ1bGwtaGVpci03MzQyNTM1N9IBbWh0dHBzOi8vYWJjbmV3cy5nby5jb20vYW1wL0ludGVybmF0aW9uYWwvd2lyZVN0b3J5L3RoYWlsYW5kLWludGVycG9sLWlzc3Vlcy1yZWQtbm90aWNlLXJlZC1idWxsLWhlaXItNzM0MjUzNTc?oc=5)
+---
+### **Paris on maximum virus alert, closing bars, not restaurants - The Associated Press**
+#### Mon, 05 Oct 2020 12:25:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3ZpcnVzLW91dGJyZWFrLXBhcmlzLWFyY2hpdmUtZjg5MTA1MWYxZTRmYmNmMjgyZTU1NDYzMDUwNGVmZWLSAQA?oc=5)
+---
+### **5 things to know before the stock market opens Monday - CNBC**
+#### Mon, 05 Oct 2020 11:33:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTAvMDUvNS10aGluZ3MtdG8ta25vdy1iZWZvcmUtdGhlLXN0b2NrLW1hcmtldC1vcGVucy1vY3RvYmVyLTUtMjAyMC5odG1s0gFmaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjAvMTAvMDUvNS10aGluZ3MtdG8ta25vdy1iZWZvcmUtdGhlLXN0b2NrLW1hcmtldC1vcGVucy1vY3RvYmVyLTUtMjAyMC5odG1s?oc=5)
+---
+### **Strategists Wary of Trump's Prognosis - Bloomberg Markets and Finance**
+#### Mon, 05 Oct 2020 06:57:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9TE0tc2hwY0N3SmPSAQA?oc=5)
+---
+### **Stocks rise as Trump's health remains in focus - Yahoo Finance**
+#### Mon, 05 Oct 2020 07:38:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiQFodHRwczovL2ZpbmFuY2UueWFob28uY29tL25ld3Mvc3RvY2stbWFya2V0LXJlcG9ydC1vY3RvYmVyLTUtdHJ1bXAtY292aWQtMTktaGVhbHRoLWZ0c2UtY2FjLTQwLWRheC1zcC01MDAtZG93LWpvbmVzLW5hc2RhcS0wNzM4MDAyMzEuaHRtbNIBkQFodHRwczovL2ZpbmFuY2UueWFob28uY29tL2FtcGh0bWwvbmV3cy9zdG9jay1tYXJrZXQtcmVwb3J0LW9jdG9iZXItNS10cnVtcC1jb3ZpZC0xOS1oZWFsdGgtZnRzZS1jYWMtNDAtZGF4LXNwLTUwMC1kb3ctam9uZXMtbmFzZGFxLTA3MzgwMDIzMS5odG1s?oc=5)
+---
+### **Stocks recover on signs of improving Trump's health - Reuters**
+#### Mon, 05 Oct 2020 00:16:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQGh0dHBzOi8vd3d3LnJldXRlcnMuY29tL2FydGljbGUvZ2xvYmFsLW1hcmtldHMtaW50LWlkVVNLQk4yNlEwNVTSATRodHRwczovL21vYmlsZS5yZXV0ZXJzLmNvbS9hcnRpY2xlL2FtcC9pZFVTS0JOMjZRMDBM?oc=5)
+---
+### **Nest Audio review: Throw your Google Home in the trash - Android Police**
+#### Mon, 05 Oct 2020 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQmh0dHBzOi8vd3d3LmFuZHJvaWRwb2xpY2UuY29tLzIwMjAvMTAvMDUvZ29vZ2xlLW5lc3QtYXVkaW8tcmV2aWV3L9IBRmh0dHBzOi8vd3d3LmFuZHJvaWRwb2xpY2UuY29tLzIwMjAvMTAvMDUvZ29vZ2xlLW5lc3QtYXVkaW8tcmV2aWV3Lz9hbXA?oc=5)
+---
+### **Apple sues recycler for allegedly reselling 100,000 iPhones, iPads and Watches - Engadget**
+#### Mon, 05 Oct 2020 07:30:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmVuZ2FkZ2V0LmNvbS9hcHBsZS1zdWVzLXJlY3ljbGVyLWZvci1hbGxlZ2VkbHktcmVzZWxsaW5nLTEwMDAwMC1pLXBob25lcy1pLXBhZHMtYW5kLXdhdGNoZXMtMDY0ODA2NDIzLmh0bWzSAXpodHRwczovL3d3dy5lbmdhZGdldC5jb20vYW1wL2FwcGxlLXN1ZXMtcmVjeWNsZXItZm9yLWFsbGVnZWRseS1yZXNlbGxpbmctMTAwMDAwLWktcGhvbmVzLWktcGFkcy1hbmQtd2F0Y2hlcy0wNjQ4MDY0MjMuaHRtbA?oc=5)
+---
+### **Google Pixel 5 just got a lot more appealing — here’s why - Tom's Guide**
+#### Mon, 05 Oct 2020 10:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LnRvbXNndWlkZS5jb20vbmV3cy9nb29nbGUtcGl4ZWwtNS1qdXN0LWdvdC1hLWxvdC1tb3JlLWFwcGVhbGluZy1oZXJlcy13aHnSAVlodHRwczovL3d3dy50b21zZ3VpZGUuY29tL2FtcC9uZXdzL2dvb2dsZS1waXhlbC01LWp1c3QtZ290LWEtbG90LW1vcmUtYXBwZWFsaW5nLWhlcmVzLXdoeQ?oc=5)
+---
+### **Mastering iOS 14: Home Screen app management tips - do you know them all? - 9to5Mac**
+#### Mon, 05 Oct 2020 08:27:05 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9eENCcDZLeHdpeFHSAQA?oc=5)
+---
+### **Hundreds of Regal, Cineworld movie theaters to close - ABC News**
+#### Mon, 05 Oct 2020 09:42:11 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vYWJjbmV3cy5nby5jb20vQnVzaW5lc3Mvd2lyZVN0b3J5L2h1bmRyZWRzLXJlZ2FsLWNpbmV3b3JsZC1tb3ZpZS10aGVhdGVycy1jbG9zZS03MzQyNTkwMdIBZGh0dHBzOi8vYWJjbmV3cy5nby5jb20vYW1wL0J1c2luZXNzL3dpcmVTdG9yeS9odW5kcmVkcy1yZWdhbC1jaW5ld29ybGQtbW92aWUtdGhlYXRlcnMtY2xvc2UtNzM0MjU5MDE?oc=5)
+---
+### **Alec Baldwin defends portraying Donald Trump on 'SNL' while president is hospitalized - USA TODAY**
+#### Mon, 05 Oct 2020 12:19:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvZW50ZXJ0YWlubWVudC90di8yMDIwLzEwLzA1L3RydW1wLWhvc3BpdGFsLWFsZWMtYmFsZHdpbi1kZWZlbmRzLXNubC1za2l0LWFmdGVyLWNvdmlkLW5ld3MvMzYyMTA1NTAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzM2MjEwNTUwMDE?oc=5)
+---
+### **We Have Way More Than Four Words to Share About Gilmore Girls: Check Out the Series' Best Secrets - E! NEWS**
+#### Mon, 05 Oct 2020 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy5lb25saW5lLmNvbS9uZXdzLzExOTQ4NDEvd2UtaGF2ZS13YXktbW9yZS10aGFuLWZvdXItd29yZHMtdG8tc2hhcmUtYWJvdXQtZ2lsbW9yZS1naXJscy1jaGVjay1vdXQtdGhlLXNlcmllcy1iZXN0LXNlY3JldHPSAaEBaHR0cHM6Ly93d3cuZW9ubGluZS5jb20vYW1wL25ld3MvMTE5NDg0MS93ZS1oYXZlLXdheS1tb3JlLXRoYW4tZm91ci13b3Jkcy10by1zaGFyZS1hYm91dC1sZXNzaWdyZWF0ZXJnaWxtb3JlLWdpcmxzbGVzc2lncmVhdGVyOi1jaGVjay1vdXQtdGhlLXNlcmllcy1iZXN0LXNlY3JldHM?oc=5)
+---
+### **Robin Thicke's fiancée April Love Geary announces she's 'pregnant ... again' with baby bump photo on Instagram - USA TODAY**
+#### Mon, 05 Oct 2020 02:16:09 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvZW50ZXJ0YWlubWVudC9jZWxlYnJpdGllcy8yMDIwLzEwLzA0L3JvYmluLXRoaWNrZS1hcHJpbC1sb3ZlLWdlYXJ5LXByZWduYW5jeS1pbnN0YWdyYW0vMzYyMDI2NTAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzM2MjAyNjUwMDE?oc=5)
+---
+### **NFL Week 4 winners, losers: Mike McCarthy's Cowboys plagued by same issues from Jason Garrett era - USA TODAY**
+#### Mon, 05 Oct 2020 10:08:36 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9zcG9ydHMvbmZsLzIwMjAvMTAvMDUvbmZsLXdlZWstNC13aW5uZXJzLWxvc2Vycy1kYWxsYXMtY293Ym95cy1ob3VzdG9uLXRleGFucy8zNjE3MjEyMDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvMzYxNzIxMjAwMQ?oc=5)
+---
+### **Cleveland Browns are heating up as Dallas Cowboys stumble again | Pro Football Talk | NBC Sports - NBC Sports**
+#### Mon, 05 Oct 2020 13:28:05 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9NlUxRFprdmt6VjDSAQA?oc=5)
+---
+### **Sources - No new COVID-19 positives for Tennessee Titans; New England Patriots-Kansas City Chiefs game on - ESPN**
+#### Mon, 05 Oct 2020 13:04:01 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifmh0dHBzOi8vd3d3LmVzcG4uY29tL25mbC9zdG9yeS9fL2lkLzMwMDQ1Mjg0L25vLW5ldy1wb3NpdGl2ZXMtdGVubmVzc2VlLXRpdGFucy1uZXctZW5nbGFuZC1wYXRyaW90cy1rYW5zYXMtY2l0eS1jaGllZnMtZ2FtZS1vbtIBiwFodHRwczovL3d3dy5lc3BuLmNvbS9uZmwvc3RvcnkvXy9pZC8zMDA0NTI4NC9uby1uZXctcG9zaXRpdmVzLXRlbm5lc3NlZS10aXRhbnMtbmV3LWVuZ2xhbmQtcGF0cmlvdHMta2Fuc2FzLWNpdHktY2hpZWZzLWdhbWUtb24_cGxhdGZvcm09YW1w?oc=5)
+---
+### **Fantasy Football Week 4 Injury Recap: Nick Chubb, Austin Ekeler, Sam Darnold and more | Fantasy Football News, Rankings and Projections - Pro Football Focus**
+#### Mon, 05 Oct 2020 11:21:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LnBmZi5jb20vbmV3cy9mYW50YXN5LWZvb3RiYWxsLXdlZWstNC1pbmp1cnktcmVjYXAtbmljay1jaHViYi1hdXN0aW4tZWtlbGVyLXNhbS1kYXJub2xk0gEA?oc=5)
+---
+### **How Much Cheaper Are SpaceX Reusable Rockets? Now We Know - Motley Fool**
+#### Mon, 05 Oct 2020 12:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LmZvb2wuY29tL2ludmVzdGluZy8yMDIwLzEwLzA1L2hvdy1tdWNoLWNoZWFwZXItYXJlLXNwYWNleC1yZXVzYWJsZS1yb2NrZXRzLW5vdy13L9IBYWh0dHBzOi8vd3d3LmZvb2wuY29tL2FtcC9pbnZlc3RpbmcvMjAyMC8xMC8wNS9ob3ctbXVjaC1jaGVhcGVyLWFyZS1zcGFjZXgtcmV1c2FibGUtcm9ja2V0cy1ub3ctdy8?oc=5)
+---
+### **Safety panel has “great concern” about NASA plans to test Moon mission software - Ars Technica**
+#### Mon, 05 Oct 2020 12:22:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vYXJzdGVjaG5pY2EuY29tL3NjaWVuY2UvMjAyMC8xMC9uYXNhLXNhZmV0eS1wYW5lbC1yYWlzZXMtZG91YnRzLWFib3V0LXNvZnR3YXJlLXRlc3RpbmctZm9yLW1vb24tbWlzc2lvbnMv0gF3aHR0cHM6Ly9hcnN0ZWNobmljYS5jb20vc2NpZW5jZS8yMDIwLzEwL25hc2Etc2FmZXR5LXBhbmVsLXJhaXNlcy1kb3VidHMtYWJvdXQtc29mdHdhcmUtdGVzdGluZy1mb3ItbW9vbi1taXNzaW9ucy8_YW1wPTE?oc=5)
+---
+### **Some planets may be better for life than Earth - Phys.org**
+#### Mon, 05 Oct 2020 07:49:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiNWh0dHBzOi8vcGh5cy5vcmcvbmV3cy8yMDIwLTEwLXBsYW5ldHMtbGlmZS1lYXJ0aC5odG1s0gE0aHR0cHM6Ly9waHlzLm9yZy9uZXdzLzIwMjAtMTAtcGxhbmV0cy1saWZlLWVhcnRoLmFtcA?oc=5)
+---
+### **Survey of the Stars: Hubble Captures Great Barred Spiral Galaxy in a Fiery Furnace - SciTechDaily**
+#### Mon, 05 Oct 2020 04:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vc2NpdGVjaGRhaWx5LmNvbS9zdXJ2ZXktb2YtdGhlLXN0YXJzLWh1YmJsZS1jYXB0dXJlcy1ncmVhdC1iYXJyZWQtc3BpcmFsLWdhbGF4eS1pbi1hLWZpZXJ5LWZ1cm5hY2Uv0gFvaHR0cHM6Ly9zY2l0ZWNoZGFpbHkuY29tL3N1cnZleS1vZi10aGUtc3RhcnMtaHViYmxlLWNhcHR1cmVzLWdyZWF0LWJhcnJlZC1zcGlyYWwtZ2FsYXh5LWluLWEtZmllcnktZnVybmFjZS9hbXAv?oc=5)
+---
+### **Virologists who discovered hepatitis C win medicine Nobel - Nature.com**
+#### Mon, 05 Oct 2020 10:25:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMmh0dHBzOi8vd3d3Lm5hdHVyZS5jb20vYXJ0aWNsZXMvZDQxNTg2LTAyMC0wMjc2My140gEA?oc=5)
+---
+### **Local mother endures chemotherapy for breast cancer while pregnant - WRAL.com**
+#### Mon, 05 Oct 2020 10:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LndyYWwuY29tL3dvbWFuLWRpYWdub3NlZC13aXRoLWJyZWFzdC1jYW5jZXItZW5kdXJlcy1hZ2dyZXNzaXZlLXRyZWF0bWVudC13aGlsZS1wcmVnbmFudC8xOTMxNTEzMi_SAXlodHRwczovL3d3dy53cmFsLmNvbS93b21hbi1kaWFnbm9zZWQtd2l0aC1icmVhc3QtY2FuY2VyLWVuZHVyZXMtYWdncmVzc2l2ZS10cmVhdG1lbnQtd2hpbGUtcHJlZ25hbnQvMTkzMTUxMzIvP3ZlcnNpb249YW1w?oc=5)
+---
+### **Definitive proof that 2 simple things protect you from COVID-19 and other viruses - BGR**
+#### Sun, 04 Oct 2020 16:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vYmdyLmNvbS8yMDIwLzEwLzA0L2Nvcm9uYXZpcnVzLWZsdS1zZWFzb24tZmFjZS1tYXNrcy1zb2NpYWwtZGlzdGFuY2luZy1uby1mbHUtc291dGhlcm4taGVtaXNwaGVyZS_SAW5odHRwczovL2Jnci5jb20vMjAyMC8xMC8wNC9jb3JvbmF2aXJ1cy1mbHUtc2Vhc29uLWZhY2UtbWFza3Mtc29jaWFsLWRpc3RhbmNpbmctbm8tZmx1LXNvdXRoZXJuLWhlbWlzcGhlcmUvYW1wLw?oc=5)
+---
+### **With the coronavirus, there are no magic bullets - STAT - STAT**
+#### Mon, 05 Oct 2020 08:40:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LnN0YXRuZXdzLmNvbS8yMDIwLzEwLzA1L3dpdGgtY292aWQxOS10aGVyZS1hcmUtbm8tbWFnaWMtYnVsbGV0cy_SAQA?oc=5)
+---
