@@ -2050,3 +2050,117 @@
 ### **Dentists expected to raise fees, exit family practices as pandemic keeps patients away despite safety measures - USA TODAY**
 #### Mon, 19 Oct 2020 04:01:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9tb25leS8yMDIwLzEwLzE5L2RlbnRpc3RzLWNvcm9uYXZpcnVzLXBhbmRlbWljLWFkYS1jZGMvMzY1MzczNDAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzM2NTM3MzQwMDE?oc=5)
 ---
+### **Electoral college explained: how Biden faces an uphill battle in the US election - The Guardian**
+#### Tue, 20 Oct 2020 13:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzL25nLWludGVyYWN0aXZlLzIwMjAvb2N0LzIwL3VzLWVsZWN0b3JhbC1jb2xsZWdlLWV4cGxhaW5lZNIBAA?oc=5)
+---
+### **Glenn Greenwald trashes media 'cone of silence' around Hunter Biden email scandal - Fox News**
+#### Tue, 20 Oct 2020 02:55:43 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2dsZW5uLWdyZWVud2FsZC1jb25lLW9mLXNpbGVuY2UtbWVkaWEtaHVudGVyLWJpZGVu0gFUaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vbWVkaWEvZ2xlbm4tZ3JlZW53YWxkLWNvbmUtb2Ytc2lsZW5jZS1tZWRpYS1odW50ZXItYmlkZW4uYW1w?oc=5)
+---
+### **Coronavirus updates: Trump, Fauci and 'The Godfather;' barista stays calm during customer's mask tirade; US deaths top 220K - USA TODAY**
+#### Tue, 20 Oct 2020 13:07:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL2hlYWx0aC8yMDIwLzEwLzIwL2NvdmlkLW5ld3MtdXMtYm9yZGVycy13aXNjb25zaW4tZ2F0aGVyaW5ncy1taXNzaXNzaXBwaS1tYXNrLzU5ODUzMDYwMDIv0gEnaHR0cHM6Ly9hbXAudXNhdG9kYXkuY29tL2FtcC81OTg1MzA2MDAy?oc=5)
+---
+### **Poll: White House, Senate races are toss-ups in North Carolina - POLITICO**
+#### Tue, 20 Oct 2020 10:48:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjAvMTAvMjAvd2hpdGUtaG91c2Utc2VuYXRlLXJhY2VzLW5vcnRoLWNhcm9saW5hLTQzMDI3ONIBW2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIwLzEwLzIwL3doaXRlLWhvdXNlLXNlbmF0ZS1yYWNlcy1ub3J0aC1jYXJvbGluYS00MzAyNzg?oc=5)
+---
+### **Why investors shouldn't count on another big stimulus package - CNN**
+#### Tue, 20 Oct 2020 10:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC9pbnZlc3RpbmcvcHJlbWFya2V0LXN0b2Nrcy10cmFkaW5nL2luZGV4Lmh0bWzSAVBodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzEwLzIwL2ludmVzdGluZy9wcmVtYXJrZXQtc3RvY2tzLXRyYWRpbmcvaW5kZXguaHRtbA?oc=5)
+---
+### **Jeffrey Epstein Update: Court Says Ghislaine Maxwell's Deposition Can't Remain Secret - NPR**
+#### Tue, 20 Oct 2020 14:08:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMC8yMC85MjU3Mzk3MDQvamVmZnJleS1lcHN0ZWluLXVwZGF0ZS1jb3VydC1zYXlzLWdoaXNsYWluZS1tYXh3ZWxscy1kZXBvc2l0aW9uLWNhbi10LXJlbWFpbi1zZWPSAQA?oc=5)
+---
+### **The 10 House districts most likely to flip two weeks from Election Day - CNN**
+#### Tue, 20 Oct 2020 12:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC9wb2xpdGljcy9lbGVjdGlvbi0yMDIwLWhvdXNlLXJhY2UtcmFua2luZ3MtdHdvLXdlZWtzL2luZGV4Lmh0bWzSAWJodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzEwLzIwL3BvbGl0aWNzL2VsZWN0aW9uLTIwMjAtaG91c2UtcmFjZS1yYW5raW5ncy10d28td2Vla3MvaW5kZXguaHRtbA?oc=5)
+---
+### **Lindsey Graham's challenger, Jaime Harrison, has put S.C. back in play for Democrats - NBC News**
+#### Tue, 20 Oct 2020 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzLzIwMjAtZWxlY3Rpb24vbGluZHNleS1ncmFoYW0tcy1jaGFsbGVuZ2VyLWphaW1lLWhhcnJpc29uLWhhcy1wdXQtcy1jLW4xMjQzOTM50gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNDM5Mzk?oc=5)
+---
+### **Thousands of flying squirrels captured in Florida, trafficked with estimated $1M worth, officials say - NBC News**
+#### Tue, 20 Oct 2020 13:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL3VzLW5ld3MvdGhvdXNhbmRzLWZseWluZy1zcXVpcnJlbHMtY2FwdHVyZWQtZmxvcmlkYS10cmFmZmlja2VkLWVzdGltYXRlZC0xbS13b3J0aC1vZmZpY2lhbHMtbjEyNDM5ODPSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI0Mzk4Mw?oc=5)
+---
+### **Supreme Court declines GOP motion against mail-in ballot extension in Pennsylvania - CBS News**
+#### Tue, 20 Oct 2020 11:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3Mvc3VwcmVtZS1jb3VydC1leHRlbmRzLXBlbnN5bHZhbmlhLW1haWwtaW4tYmFsbG90LWRlYWRsaW5lL9IBW2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9uZXdzL3N1cHJlbWUtY291cnQtZXh0ZW5kcy1wZW5zeWx2YW5pYS1tYWlsLWluLWJhbGxvdC1kZWFkbGluZS8?oc=5)
+---
+### **Danish submarine murderer Peter Madsen caught after escaping prison - CNN**
+#### Tue, 20 Oct 2020 12:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC9ldXJvcGUvcGV0ZXItbWFkc2VuLXByaXNvbi1lc2NhcGUtaW50bC1zY2xpL2luZGV4Lmh0bWzSAVlodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzEwLzIwL2V1cm9wZS9wZXRlci1tYWRzZW4tcHJpc29uLWVzY2FwZS1pbnRsLXNjbGkvaW5kZXguaHRtbA?oc=5)
+---
+### **US officials suggest Trump admin cover-up after mysterious illness: NYT - Business Insider - Business Insider**
+#### Tue, 20 Oct 2020 12:29:43 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vdXMtc3BpZXMtZGlwbG9tYXRzLW15c3RlcmlvdXNseS1zaWNrLXN1Z2dlc3QtY292ZXJ1cC0yMDIwLTEw0gFgaHR0cHM6Ly93d3cuYnVzaW5lc3NpbnNpZGVyLmNvbS91cy1zcGllcy1kaXBsb21hdHMtbXlzdGVyaW91c2x5LXNpY2stc3VnZ2VzdC1jb3ZlcnVwLTIwMjAtMTA_YW1w?oc=5)
+---
+### **Covid-19’s Global Divide: As West Reels, Asia Keeps Virus at Bay - The Wall Street Journal**
+#### Tue, 20 Oct 2020 14:27:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvY292aWQtMTlzLWdsb2JhbC1kaXZpZGUtYXMtd2VzdC1yZWVscy1hc2lhLWtlZXBzLXZpcnVzLWF0LWJheS0xMTYwMzE4NjIwMtIBAA?oc=5)
+---
+### **UN Security Council discusses Nagorno-Karabakh fighting - Yahoo News**
+#### Mon, 19 Oct 2020 22:05:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vbmV3cy55YWhvby5jb20vdW4tc2VjdXJpdHktY291bmNpbC1kaXNjdXNzZXMtbmFnb3Juby0yMjA1MDE4MzIuaHRtbNIBU2h0dHBzOi8vbmV3cy55YWhvby5jb20vYW1waHRtbC91bi1zZWN1cml0eS1jb3VuY2lsLWRpc2N1c3Nlcy1uYWdvcm5vLTIyMDUwMTgzMi5odG1s?oc=5)
+---
+### **Google sued by DOJ in antitrust case over search dominance - CNBC**
+#### Tue, 20 Oct 2020 13:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTAvMjAvZG9qLWFudGl0cnVzdC1sYXdzdWl0LWFnYWluc3QtZ29vZ2xlLmh0bWzSAU1odHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMC8xMC8yMC9kb2otYW50aXRydXN0LWxhd3N1aXQtYWdhaW5zdC1nb29nbGUuaHRtbA?oc=5)
+---
+### **Lowe's will deliver your Christmas tree for free this year - CNN**
+#### Tue, 20 Oct 2020 12:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC9idXNpbmVzcy9sb3dlcy1ibGFjay1mcmlkYXktY2hyaXN0bWFzLXRyZWUtZGVsaXZlcnkvaW5kZXguaHRtbNIBYWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjAvMTAvMjAvYnVzaW5lc3MvbG93ZXMtYmxhY2stZnJpZGF5LWNocmlzdG1hcy10cmVlLWRlbGl2ZXJ5L2luZGV4Lmh0bWw?oc=5)
+---
+### **Microsoft teams with Elon Musk’s SpaceX to push cloud battle with Amazon into orbit - Fox Business**
+#### Tue, 20 Oct 2020 10:48:43 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LmZveGJ1c2luZXNzLmNvbS90ZWNobm9sb2d5L21pY3Jvc29mdC10ZWFtcy13aXRoLWVsb24tbXVza3Mtc3BhY2V4LXRvLXB1c2gtY2xvdWQtYmF0dGxlLXdpdGgtYW1hem9uLWludG8tb3JiaXTSAX1odHRwczovL3d3dy5mb3hidXNpbmVzcy5jb20vdGVjaG5vbG9neS9taWNyb3NvZnQtdGVhbXMtd2l0aC1lbG9uLW11c2tzLXNwYWNleC10by1wdXNoLWNsb3VkLWJhdHRsZS13aXRoLWFtYXpvbi1pbnRvLW9yYml0LmFtcA?oc=5)
+---
+### **Tesla Inc. stock falls Monday, underperforms market - MarketWatch**
+#### Mon, 19 Oct 2020 20:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3Lm1hcmtldHdhdGNoLmNvbS9zdG9yeS90ZXNsYS1pbmMtc3RvY2stZmFsbHMtbW9uZGF5LXVuZGVycGVyZm9ybXMtbWFya2V0LTAxNjAzMTM5MTYy0gFjaHR0cHM6Ly93d3cubWFya2V0d2F0Y2guY29tL2FtcC9zdG9yeS90ZXNsYS1pbmMtc3RvY2stZmFsbHMtbW9uZGF5LXVuZGVycGVyZm9ybXMtbWFya2V0LTAxNjAzMTM5MTYy?oc=5)
+---
+### **iPhone 12 and 12 Pro unboxing and setup (plus MagSafe accessories) - CNET**
+#### Tue, 20 Oct 2020 13:00:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9YksyODV2TFlpeVnSAQA?oc=5)
+---
+### **Google adds Nest Secure to its list of discontinued projects - Engadget**
+#### Tue, 20 Oct 2020 06:20:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiR2h0dHBzOi8vd3d3LmVuZ2FkZ2V0LmNvbS9nb29nbGUtZGlzY29udGludWVzLW5lc3Qtc2VjdXJlLTA1MzQzNjc2OS5odG1s0gFLaHR0cHM6Ly93d3cuZW5nYWRnZXQuY29tL2FtcC9nb29nbGUtZGlzY29udGludWVzLW5lc3Qtc2VjdXJlLTA1MzQzNjc2OS5odG1s?oc=5)
+---
+### **Samsung patent reveals an innovative Galaxy S phone with a flexible screen and powerful sound - PhoneArena**
+#### Tue, 20 Oct 2020 08:08:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3LnBob25lYXJlbmEuY29tL25ld3MvU2Ftc3VuZy1HYWxheHktUy1waG9uZS1wYXRlbnQtZmxleGlibGUtc2NyZWVuLXByby1zb3VuZF9pZDEyNzkzNdIBAA?oc=5)
+---
+### **LG's latest 55-inch CX OLED smart TV is $500 off at Amazon - Engadget**
+#### Tue, 20 Oct 2020 13:46:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmVuZ2FkZ2V0LmNvbS9sZy01NS1pbmNoLWN4LW9sZWQtc21hcnQtdHYtZGVhbC1hbWF6b24tc2Ftcy1jbHViLTEzMDYxMzExMS5odG1s0gFdaHR0cHM6Ly93d3cuZW5nYWRnZXQuY29tL2FtcC9sZy01NS1pbmNoLWN4LW9sZWQtc21hcnQtdHYtZGVhbC1hbWF6b24tc2Ftcy1jbHViLTEzMDYxMzExMS5odG1s?oc=5)
+---
+### **Actor Jeff Bridges Tweets That He Has Been Diagnosed With Lymphoma - NPR**
+#### Tue, 20 Oct 2020 12:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMC8yMC85MjU3MjIzMDQvYWN0b3ItamVmZi1icmlkZ2VzLXR3ZWV0cy10aGF0LWhlLWhhcy1iZWVuLWRpYWdub3NlZC13aXRoLWx5bXBob21h0gEA?oc=5)
+---
+### **Derek Hough makes triumphant return to 'DWTS' stage with mind-blowing performance - Yahoo Entertainment**
+#### Tue, 20 Oct 2020 07:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy55YWhvby5jb20vZW50ZXJ0YWlubWVudC9kZXJlay1ob3VnaC1tYWtlcy10cml1bXBoYW50LXJldHVybi10by1kd3RzLXN0YWdlLXdpdGgtbWluZGJsb3dpbmctcGVyZm9ybWFuY2UtMDcxNDM0MDU2Lmh0bWzSAYkBaHR0cHM6Ly93d3cueWFob28uY29tL2FtcGh0bWwvZW50ZXJ0YWlubWVudC9kZXJlay1ob3VnaC1tYWtlcy10cml1bXBoYW50LXJldHVybi10by1kd3RzLXN0YWdlLXdpdGgtbWluZGJsb3dpbmctcGVyZm9ybWFuY2UtMDcxNDM0MDU2Lmh0bWw?oc=5)
+---
+### **James Redford, filmmaker and son of Robert Redford, dies at 58 - CNN**
+#### Tue, 20 Oct 2020 13:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC9lbnRlcnRhaW5tZW50L2phbWVzLXJlZGZvcmQtb2JpdC9pbmRleC5odG1s0gFOaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMC8xMC8yMC9lbnRlcnRhaW5tZW50L2phbWVzLXJlZGZvcmQtb2JpdC9pbmRleC5odG1s?oc=5)
+---
+### **Royal family ‘edged Prince Harry, Meghan Markle out with ‘cruel actions: report - The News International**
+#### Tue, 20 Oct 2020 12:03:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3LnRoZW5ld3MuY29tLnBrL2xhdGVzdC83MzIyMTUtcm95YWwtZmFtaWx5LWVkZ2VkLXByaW5jZS1oYXJyeS1tZWdoYW4tbWFya2xlLW91dC13aXRoLWNydWVsLWFjdGlvbnMtcmVwb3J00gFxaHR0cHM6Ly93d3cudGhlbmV3cy5jb20ucGsvYW1wLzczMjIxNS1yb3lhbC1mYW1pbHktZWRnZWQtcHJpbmNlLWhhcnJ5LW1lZ2hhbi1tYXJrbGUtb3V0LXdpdGgtY3J1ZWwtYWN0aW9ucy1yZXBvcnQ?oc=5)
+---
+### **Last minute ticket prices spike after Dodgers clinch World Series - CNBC**
+#### Tue, 20 Oct 2020 13:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTAvMjAvbG9zLWFuZ2VsZXMtZG9kZ2Vycy0yMDIwLXdvcmxkLXNlcmllcy1zcGlrZS10aWNrZXQtcHJpY2VzLW1sYi1jb3ZpZDE5Lmh0bWzSAW5odHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMC8xMC8yMC9sb3MtYW5nZWxlcy1kb2RnZXJzLTIwMjAtd29ybGQtc2VyaWVzLXNwaWtlLXRpY2tldC1wcmljZXMtbWxiLWNvdmlkMTkuaHRtbA?oc=5)
+---
+### **NFL Week 7 picks and odds: Undefeated Steelers fall in thriller to 5-0 Titans, Bears upset Rams in Los Angeles - CBS Sports**
+#### Tue, 20 Oct 2020 12:39:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMikAFodHRwczovL3d3dy5jYnNzcG9ydHMuY29tL25mbC9uZXdzL25mbC13ZWVrLTctcGlja3MtYW5kLW9kZHMtdW5kZWZlYXRlZC1zdGVlbGVycy1mYWxsLWluLXRocmlsbGVyLXRvLTUtMC10aXRhbnMtYmVhcnMtdXBzZXQtcmFtcy1pbi1sb3MtYW5nZWxlcy_SAZQBaHR0cHM6Ly93d3cuY2Jzc3BvcnRzLmNvbS9uZmwvbmV3cy9uZmwtd2Vlay03LXBpY2tzLWFuZC1vZGRzLXVuZGVmZWF0ZWQtc3RlZWxlcnMtZmFsbC1pbi10aHJpbGxlci10by01LTAtdGl0YW5zLWJlYXJzLXVwc2V0LXJhbXMtaW4tbG9zLWFuZ2VsZXMvYW1wLw?oc=5)
+---
+### **Champions League power rankings 2020-21: All 32 teams rated ahead of group stages - Mirror Online**
+#### Tue, 20 Oct 2020 09:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm1pcnJvci5jby51ay9zcG9ydC9mb290YmFsbC9uZXdzL2NoYW1waW9ucy1sZWFndWUtZmF2b3VyaXRlcy1iYXllcm4tbGl2ZXJwb29sLTIyODY4OTgx0gFmaHR0cHM6Ly93d3cubWlycm9yLmNvLnVrL3Nwb3J0L2Zvb3RiYWxsL25ld3MvY2hhbXBpb25zLWxlYWd1ZS1mYXZvdXJpdGVzLWJheWVybi1saXZlcnBvb2wtMjI4Njg5ODEuYW1w?oc=5)
+---
+### **Two Stats That Show How Hapless the Cowboys’ Offense Was in Andy Dalton’s First Start - Sports Illustrated**
+#### Tue, 20 Oct 2020 13:39:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LnNpLmNvbS9leHRyYS1tdXN0YXJkLzIwMjAvMTAvMjAvY293Ym95cy1vZmZlbnNlLWFuZHktZGFsdG9uLW1vbmRheS1uaWdodC1mb290YmFsbC1jYXJkaW5hbHPSAWxodHRwczovL3d3dy5zaS5jb20vLmFtcC9leHRyYS1tdXN0YXJkLzIwMjAvMTAvMjAvY293Ym95cy1vZmZlbnNlLWFuZHktZGFsdG9uLW1vbmRheS1uaWdodC1mb290YmFsbC1jYXJkaW5hbHM?oc=5)
+---
+### **NASA mission will touch down on asteroid Bennu today - CNN**
+#### Tue, 20 Oct 2020 13:59:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC93b3JsZC9uYXNhLWFzdGVyb2lkLWJlbm51LW1pc3Npb24tdXBkYXRlcy1zY24tdHJuZC9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMC8xMC8yMC93b3JsZC9uYXNhLWFzdGVyb2lkLWJlbm51LW1pc3Npb24tdXBkYXRlcy1zY24tdHJuZC9pbmRleC5odG1s?oc=5)
+---
+### **Nature journals announce first open-access agreement - Nature.com**
+#### Tue, 20 Oct 2020 07:04:47 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMmh0dHBzOi8vd3d3Lm5hdHVyZS5jb20vYXJ0aWNsZXMvZDQxNTg2LTAyMC0wMjk1OS0x0gEA?oc=5)
+---
+### **The Orionid meteor shower peaks Tuesday night into Wednesday morning - USA TODAY**
+#### Mon, 19 Oct 2020 18:39:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL25hdGlvbi8yMDIwLzEwLzE5L29yaW9uaWQtbWV0ZW9yLXNob3dlci1wZWFrLW5pZ2h0LXNreS1lYXJseS13ZWRuZXNkYXkvMzcxMzY3NzAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzM3MTM2NzcwMDE?oc=5)
+---
+### **Asteroid On Track To Buzz Earth The Day Before The Presidential Election - HuffPost**
+#### Tue, 20 Oct 2020 07:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3Lmh1ZmZwb3N0LmNvbS9lbnRyeS9hc3Rlcm9pZC0yMDE4dnAxLWVsZWN0aW9uX25fNWY4ZTVjZmVjNWI2N2RhODVkMjEwMWQ10gEA?oc=5)
+---
+### **Covid-19 Live Updates: Volunteers to Be Infected in Vaccine Study - The New York Times**
+#### Tue, 20 Oct 2020 13:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMC8xMC8yMC93b3JsZC9jb3ZpZC0xOS1jb3JvbmF2aXJ1cy11cGRhdGVz0gEA?oc=5)
+---
+### **Texas woman died of COVID-19 on flight, Dallas County judge says - KXAN.com**
+#### Tue, 20 Oct 2020 10:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3Lmt4YW4uY29tL25ld3MvY29yb25hdmlydXMvdGV4YXMtd29tYW4tZGllZC1vZi1jb3ZpZC0xOS1vbi1mbGlnaHQtZGFsbGFzLWNvdW50eS1qdWRnZS1zYXlzL9IBamh0dHBzOi8vd3d3Lmt4YW4uY29tL25ld3MvY29yb25hdmlydXMvdGV4YXMtd29tYW4tZGllZC1vZi1jb3ZpZC0xOS1vbi1mbGlnaHQtZGFsbGFzLWNvdW50eS1qdWRnZS1zYXlzL2FtcC8?oc=5)
+---
+### **10 people have died after every resident of a Kansas nursing home got Covid-19 - CNN**
+#### Tue, 20 Oct 2020 10:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMC8yMC91cy9rYW5zYXMtbnVyc2luZy1ob21lLWNvcm9uYXZpcnVzLWRlYXRocy10cm5kL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzEwLzIwL3VzL2thbnNhcy1udXJzaW5nLWhvbWUtY29yb25hdmlydXMtZGVhdGhzLXRybmQvaW5kZXguaHRtbA?oc=5)
+---
+### **Maine CDC reports an additional 27 coronavirus cases, 31 new recoveries - WMTW Portland**
+#### Tue, 20 Oct 2020 14:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LndtdHcuY29tL2FydGljbGUvbWFpbmUtY2RjLXJlcG9ydHMtYW4tYWRkaXRpb25hbC0yNy1jb3JvbmF2aXJ1cy1jYXNlcy0zMS1uZXctcmVjb3Zlcmllcy8zNDQyNTc0NdIBcGh0dHBzOi8vd3d3LndtdHcuY29tL2FtcC9hcnRpY2xlL21haW5lLWNkYy1yZXBvcnRzLWFuLWFkZGl0aW9uYWwtMjctY29yb25hdmlydXMtY2FzZXMtMzEtbmV3LXJlY292ZXJpZXMvMzQ0MjU3NDU?oc=5)
+---
