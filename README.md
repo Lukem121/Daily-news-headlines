@@ -4786,3 +4786,117 @@
 ### **Sinovac's COVID-19 vaccine induces quick immune response: study - Reuters**
 #### Tue, 17 Nov 2020 23:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiAFodHRwczovL2luLnJldXRlcnMuY29tL2FydGljbGUvdXMtaGVhbHRoLWNvcm9uYXZpcnVzLXNpbm92YWMvc2lub3ZhY3MtY292aWQtMTktdmFjY2luZS1pbmR1Y2VzLXF1aWNrLWltbXVuZS1yZXNwb25zZS1zdHVkeS1pZFVTS0JOMjdYMzU00gE3aHR0cHM6Ly9pbi5tb2JpbGUucmV1dGVycy5jb20vYXJ0aWNsZS9hbXAvaWRVU0tCTjI3WDM1NA?oc=5)
 ---
+### **Republicans seek to stymie Biden with final Trump nominees - POLITICO**
+#### Thu, 19 Nov 2020 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjAvMTEvMTkvc2VuYXRlLWdvcC10cnVtcC1ub21pbmVlcy1iaWRlbi00Mzc5NTnSAVNodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMC8xMS8xOS9zZW5hdGUtZ29wLXRydW1wLW5vbWluZWVzLWJpZGVuLTQzNzk1OQ?oc=5)
+---
+### **Wayne County GOP members rescind votes to certify election, claim Dems 'bullied' them - Fox News**
+#### Thu, 19 Nov 2020 06:22:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL21pY2hpZ2FuLWdvcC1lbGVjdGlvbi1jaGVja2Vycy1yZXNjaW5kLWNlcnRpZnktdm90ZS1jbGFpbS1kZW1zLWJ1bGxpZWQtdGhlbdIBcGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL21pY2hpZ2FuLWdvcC1lbGVjdGlvbi1jaGVja2Vycy1yZXNjaW5kLWNlcnRpZnktdm90ZS1jbGFpbS1kZW1zLWJ1bGxpZWQtdGhlbS5hbXA?oc=5)
+---
+### **12 Million To Lose Jobless Benefits The Day After Christmas Unless Congress Acts - NPR**
+#### Thu, 19 Nov 2020 11:00:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMS8xOS85MzYzMjkxMzAvMTItbWlsbGlvbi10by1sb3NlLWpvYmxlc3MtYmVuZWZpdHMtdGhlLWRheS1hZnRlci1jaHJpc3RtYXMtdW5sZXNzLWNvbmdyZXNzLWFjdHPSAQA?oc=5)
+---
+### **Boeing 737 Max can fly again: The key level to watch in the stock, according to one trader - CNBC**
+#### Thu, 19 Nov 2020 11:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTEvMTkvYm9laW5nLTczNy1tYXgtY2FuLWZseS1hZ2Fpbi1rZXktbGV2ZWwtdG8td2F0Y2gtaW4tdGhlLXN0b2NrLmh0bWzSAWVodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMC8xMS8xOS9ib2VpbmctNzM3LW1heC1jYW4tZmx5LWFnYWluLWtleS1sZXZlbC10by13YXRjaC1pbi10aGUtc3RvY2suaHRtbA?oc=5)
+---
+### **Why Were The Polls Off? Pollsters Have Some Early Theories - NPR**
+#### Thu, 19 Nov 2020 10:20:35 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMS8xOS85MzYzMTczNDEvd2h5LXdlcmUtdGhlLXBvbGxzLW9mZi1wb2xsc3RlcnMtaGF2ZS1zb21lLWVhcmx5LXRoZW9yaWVz0gEA?oc=5)
+---
+### **'I don't care what you think': Cuomo lashes out at reporters at Covid briefing - The Guardian**
+#### Thu, 19 Nov 2020 03:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjAvbm92LzE4L2FuZHJldy1jdW9tby1jb3JvbmF2aXJ1cy1icmllZmluZy1yZXBvcnRlcnMtbmV3LXlvcmstc2Nob29sc9IBbGh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjAvbm92LzE4L2FuZHJldy1jdW9tby1jb3JvbmF2aXJ1cy1icmllZmluZy1yZXBvcnRlcnMtbmV3LXlvcmstc2Nob29scw?oc=5)
+---
+### **IAEA chief warns against military strike on Iran - NBC News**
+#### Thu, 19 Nov 2020 13:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvaWFlYS1jaGllZi13YXJucy1hZ2FpbnN0LW1pbGl0YXJ5LXN0cmlrZS1pcmFuLW4xMjQ4MjE20gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNDgyMTY?oc=5)
+---
+### **Newsom's French Laundry dinner sparks questions about 'outdoor dining' definition - POLITICO**
+#### Thu, 19 Nov 2020 03:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMilQFodHRwczovL3d3dy5wb2xpdGljby5jb20vc3RhdGVzL2NhbGlmb3JuaWEvc3RvcnkvMjAyMC8xMS8xOC9uZXdzb21zLWZyZW5jaC1sYXVuZHJ5LWRpbm5lci1zcGFya3MtcXVlc3Rpb25zLWFib3V0LWRlZmluaXRpb24tb2Ytb3V0ZG9vci1kaW5pbmctMTMzNzA2MtIBAA?oc=5)
+---
+### **Biden, Harris to meet with governors, Trump again has no public events - NBC News**
+#### Thu, 19 Nov 2020 14:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL3BvbGl0aWNzLW5ld3MvYmlkZW4taGFycmlzLW1lZXQtZ292ZXJub3JzLXRydW1wLWFnYWluLWhhcy1uby1wdWJsaWMtZXZlbnRzLW4xMjQ4MjIy0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNDgyMjI?oc=5)
+---
+### **Florida sheriff releases dashcam video of police shooting that killed 2 black teens - New York Post **
+#### Thu, 19 Nov 2020 03:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vbnlwb3N0LmNvbS8yMDIwLzExLzE4L2Zsb3JpZGEtY29wcy1yZWxlYXNlLXZpZGVvLW9mLWZhdGFsLXBvbGljZS1zaG9vdGluZy1vZi0yLWJsYWNrLXRlZW5zL9IBZ2h0dHBzOi8vbnlwb3N0LmNvbS8yMDIwLzExLzE4L2Zsb3JpZGEtY29wcy1yZWxlYXNlLXZpZGVvLW9mLWZhdGFsLXBvbGljZS1zaG9vdGluZy1vZi0yLWJsYWNrLXRlZW5zL2FtcC8?oc=5)
+---
+### **Thailand's Prime Minister Signals Tougher Measures Against Anti-Government Protests - NPR**
+#### Thu, 19 Nov 2020 10:18:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMS8xOS85MzY1NjUxNjUvdGhhaWxhbmRzLXByaW1lLW1pbmlzdGVyLXNpZ25hbHMtdG91Z2hlci1tZWFzdXJlcy1hZ2FpbnN0LWFudGktZ292ZXJubWVudC1wcm90ZXPSAQA?oc=5)
+---
+### **Australian troops unlawfully killed 39 Afghans, report finds - NBC News**
+#### Thu, 19 Nov 2020 09:59:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvYXVzdHJhbGlhbi10cm9vcHMtdW5sYXdmdWxseS1raWxsZWQtMzktYWZnaGFucy1yZXBvcnQtZmluZHMtbjEyNDgyMDDSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI0ODIwMA?oc=5)
+---
+### **Outside Nigeria’s ‘Green Zone,’ Jihadists Rule the Road - The Wall Street Journal**
+#### Thu, 19 Nov 2020 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvb3V0c2lkZS1uaWdlcmlhcy1ncmVlbi16b25lLWppaGFkaXN0cy1ydWxlLXRoZS1yb2FkLTExNjA1Nzg3MjAw0gEA?oc=5)
+---
+### **5 things to know for November 19: Covid, transition, Florida shooting, Iota, vaccines - CNN**
+#### Thu, 19 Nov 2020 11:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8xOS91cy9maXZlLXRoaW5ncy1ub3ZlbWJlci0xOS10cm5kL2luZGV4Lmh0bWzSAU1odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzExLzE5L3VzL2ZpdmUtdGhpbmdzLW5vdmVtYmVyLTE5LXRybmQvaW5kZXguaHRtbA?oc=5)
+---
+### **Jobless claims filings pick up amid continued struggles for labor market - CNBC**
+#### Thu, 19 Nov 2020 13:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiOmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTEvMTkvd2Vla2x5LWpvYmxlc3MtY2xhaW1zLmh0bWzSAT5odHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMC8xMS8xOS93ZWVrbHktam9ibGVzcy1jbGFpbXMuaHRtbA?oc=5)
+---
+### **Macy's shares fall as same-store sales drop more than 20% - CNBC**
+#### Thu, 19 Nov 2020 11:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTEvMTkvbWFjeXMtbS1yZXBvcnRzLXEzLTIwMjAtbG9zcy1zYWxlcy1kZWNsaW5lLmh0bWzSAVNodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMC8xMS8xOS9tYWN5cy1tLXJlcG9ydHMtcTMtMjAyMC1sb3NzLXNhbGVzLWRlY2xpbmUuaHRtbA?oc=5)
+---
+### **Vaccine from AstraZeneca-Oxford produces strong immune response in older adults - Seeking Alpha**
+#### Thu, 19 Nov 2020 07:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vc2Vla2luZ2FscGhhLmNvbS9uZXdzLzM2Mzc3ODctdmFjY2luZS1mcm9tLWFzdHJhemVuZWNhLW94Zm9yZC1wcm9kdWNlcy1zdHJvbmctaW1tdW5lLXJlc3BvbnNlLWluLW9sZGVyLWFkdWx0c9IBeWh0dHBzOi8vc2Vla2luZ2FscGhhLmNvbS9hbXAvbmV3cy8zNjM3Nzg3LXZhY2NpbmUtZnJvbS1hc3RyYXplbmVjYS1veGZvcmQtcHJvZHVjZXMtc3Ryb25nLWltbXVuZS1yZXNwb25zZS1pbi1vbGRlci1hZHVsdHM?oc=5)
+---
+### **Is Pfizer a Smart Coronavirus Stock to Buy After Moderna's Great Vaccine Results? - Motley Fool**
+#### Thu, 19 Nov 2020 11:08:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LmZvb2wuY29tL2ludmVzdGluZy8yMDIwLzExLzE5L2lzLXBmaXplci1hLXNtYXJ0LWNvcm9uYXZpcnVzLXN0b2NrLXRvLWJ1eS1hZnRlci1tL9IBYWh0dHBzOi8vd3d3LmZvb2wuY29tL2FtcC9pbnZlc3RpbmcvMjAyMC8xMS8xOS9pcy1wZml6ZXItYS1zbWFydC1jb3JvbmF2aXJ1cy1zdG9jay10by1idXktYWZ0ZXItbS8?oc=5)
+---
+### **Mac mini and Apple Silicon M1 review: Not so crazy after all - Ars Technica**
+#### Thu, 19 Nov 2020 14:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vYXJzdGVjaG5pY2EuY29tL2dhZGdldHMvMjAyMC8xMS9tYWMtbWluaS1hbmQtYXBwbGUtc2lsaWNvbi1tMS1yZXZpZXctbm90LXNvLWNyYXp5LWFmdGVyLWFsbC_SAWpodHRwczovL2Fyc3RlY2huaWNhLmNvbS9nYWRnZXRzLzIwMjAvMTEvbWFjLW1pbmktYW5kLWFwcGxlLXNpbGljb24tbTEtcmV2aWV3LW5vdC1zby1jcmF6eS1hZnRlci1hbGwvP2FtcD0x?oc=5)
+---
+### **Nvidia’s GeForce Now cloud gaming service launches on iOS as a web app - The Verge**
+#### Thu, 19 Nov 2020 14:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LnRoZXZlcmdlLmNvbS8yMDIwLzExLzE5LzIxNTczMzExL252aWRpYS1nZWZvcmNlLW5vdy1pb3MtbGF1bmNoLWJldGEtcmVsZWFzZS1zYWZhcmktbW9iaWxlLXdlYi1hcHDSAXpodHRwczovL3d3dy50aGV2ZXJnZS5jb20vcGxhdGZvcm0vYW1wLzIwMjAvMTEvMTkvMjE1NzMzMTEvbnZpZGlhLWdlZm9yY2Utbm93LWlvcy1sYXVuY2gtYmV0YS1yZWxlYXNlLXNhZmFyaS1tb2JpbGUtd2ViLWFwcA?oc=5)
+---
+### **Walmart plans to sell more PS5 and Xbox Series X consoles on Thursday - Engadget**
+#### Thu, 19 Nov 2020 04:07:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LmVuZ2FkZ2V0LmNvbS93aGVyZS10by1idXktcHM1LXhib3gtc2VyaWVzLXgtd2FsbWFydC0wMzUwMjEzMTIuaHRtbNIBUmh0dHBzOi8vd3d3LmVuZ2FkZ2V0LmNvbS9hbXAvd2hlcmUtdG8tYnV5LXBzNS14Ym94LXNlcmllcy14LXdhbG1hcnQtMDM1MDIxMzEyLmh0bWw?oc=5)
+---
+### **Amazon Black Friday 2020 deals revealed: Reductions on the latest Echo devices, Ring video doorbells, Fire HD tablets and more from Nov. 20 - CNET**
+#### Thu, 19 Nov 2020 02:54:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMikQFodHRwczovL3d3dy5jbmV0LmNvbS9uZXdzL2FtYXpvbi1ibGFjay1mcmlkYXktMjAyMC1kZWFscy1yZXZlYWxlZC1yZWR1Y3Rpb25zLW9uLXRoZS1sYXRlc3QtZWNoby1kZXZpY2VzLXJpbmctdmlkZW8tZG9vcmJlbGxzLWZpcmUtaGQtdGFibGV0cy1hbmQv0gGcAWh0dHBzOi8vd3d3LmNuZXQuY29tL2dvb2dsZS1hbXAvbmV3cy9hbWF6b24tYmxhY2stZnJpZGF5LTIwMjAtZGVhbHMtcmV2ZWFsZWQtcmVkdWN0aW9ucy1vbi10aGUtbGF0ZXN0LWVjaG8tZGV2aWNlcy1yaW5nLXZpZGVvLWRvb3JiZWxscy1maXJlLWhkLXRhYmxldHMtYW5kLw?oc=5)
+---
+### **Bobby Brown Jr found dead in Los Angeles home at age 28 - The Guardian**
+#### Thu, 19 Nov 2020 13:33:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjAvbm92LzE5L2JvYmJ5LWJyb3duLWpyLWZvdW5kLWRlYWQtbG9zLWFuZ2VsZXMtYWdlLTI40gEA?oc=5)
+---
+### **'Glee' star Naya Rivera's ex Ryan Dorsey files wrongful death suit for 'utterly preventable' drowning - USA TODAY**
+#### Thu, 19 Nov 2020 01:58:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMilQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvZW50ZXJ0YWlubWVudC9jZWxlYnJpdGllcy8yMDIwLzExLzE4L25heWEtcml2ZXJhLXdyb25nZnVsLWRlYXRoLWxhd3N1aXQtY2FsbHMtZHJvd25pbmctdXR0ZXJseS1wcmV2ZW50YWJsZS8zNzcxMDAzMDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvMzc3MTAwMzAwMQ?oc=5)
+---
+### **The Masked Singer Recap Season 4, Episode 8: Double Elimination Leaves Ken Jeong in Tears - TooFab**
+#### Thu, 19 Nov 2020 08:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vdG9vZmFiLmNvbS8yMDIwLzExLzE5L3RoZS1tYXNrZWQtc2luZ2VyLWRvdWJsZS1lbGltaW5hdGlvbi1rZW4tamVvbmctdGVhcnMv0gFXaHR0cHM6Ly9hbXAudG9vZmFiLmNvbS8yMDIwLzExLzE5L3RoZS1tYXNrZWQtc2luZ2VyLWRvdWJsZS1lbGltaW5hdGlvbi1rZW4tamVvbmctdGVhcnMv?oc=5)
+---
+### **Lil Baby, Taylor Swift & More Honored at 2020 Apple Music Awards - Billboard**
+#### Thu, 19 Nov 2020 09:18:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmJpbGxib2FyZC5jb20vYXJ0aWNsZXMvbmV3cy85NDg2NTU4L2xpbC1iYWJ5LXRheWxvci1zd2lmdC1hcHBsZS1tdXNpYy1hd2FyZHPSAVxodHRwczovL3d3dy5iaWxsYm9hcmQuY29tL2FtcC9hcnRpY2xlcy9uZXdzLzk0ODY1NTgvbGlsLWJhYnktdGF5bG9yLXN3aWZ0LWFwcGxlLW11c2ljLWF3YXJkcw?oc=5)
+---
+### **2020 NBA Draft pick breakdown: Who did your favorite team choose? - Fox News**
+#### Thu, 19 Nov 2020 12:55:50 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiP2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3Nwb3J0cy9uYmEtZHJhZnQtdGVhbS1ieS10ZWFtLWJyZWFrZG93btIBQ2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3Nwb3J0cy9uYmEtZHJhZnQtdGVhbS1ieS10ZWFtLWJyZWFrZG93bi5hbXA?oc=5)
+---
+### **Warriors reportedly fear Klay Thompson has 'significant' Achilles injury: How might they react moving forward? - CBS Sports**
+#### Thu, 19 Nov 2020 07:22:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijgFodHRwczovL3d3dy5jYnNzcG9ydHMuY29tL25iYS9uZXdzL3dhcnJpb3JzLXJlcG9ydGVkbHktZmVhci1rbGF5LXRob21wc29uLWhhcy1zaWduaWZpY2FudC1hY2hpbGxlcy1pbmp1cnktaG93LW1pZ2h0LXRoZXktcmVhY3QtbW92aW5nLWZvcndhcmQv0gGSAWh0dHBzOi8vd3d3LmNic3Nwb3J0cy5jb20vbmJhL25ld3Mvd2FycmlvcnMtcmVwb3J0ZWRseS1mZWFyLWtsYXktdGhvbXBzb24taGFzLXNpZ25pZmljYW50LWFjaGlsbGVzLWluanVyeS1ob3ctbWlnaHQtdGhleS1yZWFjdC1tb3ZpbmctZm9yd2FyZC9hbXAv?oc=5)
+---
+### **Seahawks defense learning from past mistakes, aim to pressure Cardinals QB Murray - NFL.com**
+#### Thu, 19 Nov 2020 12:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3Lm5mbC5jb20vbmV3cy9zZWFoYXdrcy1kZWZlbnNlLWxlYXJuaW5nLWZyb20tcGFzdC1taXN0YWtlcy1haW0tdG8tcHJlc3N1cmUtY2FyZGluYWxzLXFiLW11cnJhedIBAA?oc=5)
+---
+### **Doc Rivers, Zhaire Smith react to Sixers selection of Tyrese Maxey - Sixers Wire**
+#### Thu, 19 Nov 2020 03:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vc2l4ZXJzd2lyZS51c2F0b2RheS5jb20vMjAyMC8xMS8xOC9kb2Mtcml2ZXJzLXpoYWlyZS1zbWl0aC1yZWFjdC10by1zaXhlcnMtc2VsZWN0aW9uLW9mLXR5cmVzZS1tYXhleS_SAXFodHRwczovL3NpeGVyc3dpcmUudXNhdG9kYXkuY29tLzIwMjAvMTEvMTgvZG9jLXJpdmVycy16aGFpcmUtc21pdGgtcmVhY3QtdG8tc2l4ZXJzLXNlbGVjdGlvbi1vZi10eXJlc2UtbWF4ZXkvYW1wLw?oc=5)
+---
+### **New Climate Satellite Measures Sea Level Rise - NPR**
+#### Thu, 19 Nov 2020 10:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMS8xOS85MzMwMzgzMzIvbmFzYS1zYXRlbGxpdGUtdG8tbWVhc3VyZS1nbG9iYWwtc2VhLWxldmVsLXJpc2XSAQA?oc=5)
+---
+### **Star collision helps solve 16-year-old mystery of the Blue Ring Nebula - CNET**
+#### Thu, 19 Nov 2020 01:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LmNuZXQuY29tL25ld3Mvc3Rhci1jb2xsaXNpb24taGVscHMtc29sdmUtMTYteWVhci1vbGQtbXlzdGVyeS1vZi10aGUtYmx1ZS1yaW5nLW5lYnVsYS_SAWxodHRwczovL3d3dy5jbmV0LmNvbS9nb29nbGUtYW1wL25ld3Mvc3Rhci1jb2xsaXNpb24taGVscHMtc29sdmUtMTYteWVhci1vbGQtbXlzdGVyeS1vZi10aGUtYmx1ZS1yaW5nLW5lYnVsYS8?oc=5)
+---
+### **SpaceX’s plans for a reusable Dragon spacecraft fleet detailed by Gwynne Shotwell - Teslarati**
+#### Thu, 19 Nov 2020 10:00:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LnRlc2xhcmF0aS5jb20vc3BhY2V4LXJldXNhYmxlLWRyYWdvbi1zcGFjZWNyYWZ0LWZsZWV0LWRldGFpbHMv0gFOaHR0cHM6Ly93d3cudGVzbGFyYXRpLmNvbS9zcGFjZXgtcmV1c2FibGUtZHJhZ29uLXNwYWNlY3JhZnQtZmxlZXQtZGV0YWlscy9hbXAv?oc=5)
+---
+### **A gym trainer exposed 50 athletes to Covid-19, but no one else got sick because of a ventilation redesign - CNN**
+#### Thu, 19 Nov 2020 14:02:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiR2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8xOS91cy9neW0tdmVudGlsYXRpb24tY292aWQtdHJuZC9pbmRleC5odG1s0gFLaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMC8xMS8xOS91cy9neW0tdmVudGlsYXRpb24tY292aWQtdHJuZC9pbmRleC5odG1s?oc=5)
+---
+### **Oxford University coronavirus vaccine trials show strong immune response - Axios**
+#### Thu, 19 Nov 2020 08:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmF4aW9zLmNvbS9jb3ZpZC12YWNjaW5lLW94Zm9yZC11bml2ZXJzaXR5LWltbXVuZS1yZXNwb25zZS04YTNlOTIzZC0zZWMwLTRmMGEtOGY3Ni0yYzVjZTkzZWI0NjguaHRtbNIBb2h0dHBzOi8vd3d3LmF4aW9zLmNvbS9jb3ZpZC12YWNjaW5lLW94Zm9yZC11bml2ZXJzaXR5LWltbXVuZS1yZXNwb25zZS04YTNlOTIzZC0zZWMwLTRmMGEtOGY3Ni0yYzVjZTkzZWI0NjguaHRtbA?oc=5)
+---
+### **More than 900 Mayo Clinic staff members diagnosed with Covid-19 in Midwest over two weeks - CNN**
+#### Thu, 19 Nov 2020 11:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8xOS91cy9tYXlvLWNsaW5pYy05MDAtc3RhZmYtcG9zaXRpdmUtY292aWQvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjAvMTEvMTkvdXMvbWF5by1jbGluaWMtOTAwLXN0YWZmLXBvc2l0aXZlLWNvdmlkL2luZGV4Lmh0bWw?oc=5)
+---
+### **COVID-19 In Pittsburgh: Allegheny County Issues Stay-At-Home Public Health Advisory - CBS Pittsburgh**
+#### Thu, 19 Nov 2020 11:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vcGl0dHNidXJnaC5jYnNsb2NhbC5jb20vMjAyMC8xMS8xOS9hbGxlZ2hlbnktY291bnR5LXN0YXktYXQtaG9tZS1hZGl2c29yeS_SAVZodHRwczovL3BpdHRzYnVyZ2guY2JzbG9jYWwuY29tLzIwMjAvMTEvMTkvYWxsZWdoZW55LWNvdW50eS1zdGF5LWF0LWhvbWUtYWRpdnNvcnkvYW1wLw?oc=5)
+---
+### **A new study questions whether masks protect wearers. You need to wear them anyway. - The Japan Times**
+#### Thu, 19 Nov 2020 01:51:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LmphcGFudGltZXMuY28uanAvbmV3cy8yMDIwLzExLzE5L3dvcmxkL3NjaWVuY2UtaGVhbHRoLXdvcmxkL2Rlbm1hcmstY29yb25hdmlydXMtbWFzay1zdHVkeS_SAQA?oc=5)
+---
