@@ -5014,3 +5014,117 @@
 ### **This young ER doctor had to tell Covid-19 patients when it was time to say goodbye to their families. Then the virus knocked him down - CNN**
 #### Fri, 20 Nov 2020 01:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8xOS9oZWFsdGgvZXItZG9jdG9yLWRhdmlkLWJ1cmthcmQtY29yb25hdmlydXMvaW5kZXguaHRtbNIBWGh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjAvMTEvMTkvaGVhbHRoL2VyLWRvY3Rvci1kYXZpZC1idXJrYXJkLWNvcm9uYXZpcnVzL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Trump Refuses To Concede, Vowing To Keep Fighting Election Loss - NPR**
+#### Sat, 21 Nov 2020 12:00:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMS8yMS85MzcwNjA3MTcvdHJ1bXBzLWZ1dGlsZS1maWdodC10by1vdmVydHVybi1lbGVjdGlvbi1sb3NzLWJyZWVkcy10dXJtb2lsLXJpc2vSAQA?oc=5)
+---
+### **One of Newsom's children quarantines after potential exposure from classmate at school - POLITICO**
+#### Sat, 21 Nov 2020 04:32:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMimQFodHRwczovL3d3dy5wb2xpdGljby5jb20vc3RhdGVzL2NhbGlmb3JuaWEvc3RvcnkvMjAyMC8xMS8yMC9vbmUtb2YtbmV3c29tcy1jaGlsZHJlbi1xdWFyYW50aW5lcy1hZnRlci1wb3RlbnRpYWwtZXhwb3N1cmUtZnJvbS1jbGFzc21hdGUtYXQtc2Nob29sLTEzMzc1NDXSAQA?oc=5)
+---
+### **Rockets Strike Kabul as Mike Pompeo Plans to Meet with Taliban - The New York Times**
+#### Sat, 21 Nov 2020 14:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjAvMTEvMjEvd29ybGQvbWlkZGxlZWFzdC9hZmdoYW5pc3Rhbi1rYWJ1bC1yb2NrZXQtYXR0YWNrLmh0bWzSAVxodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIwLzExLzIxL3dvcmxkL21pZGRsZWVhc3QvYWZnaGFuaXN0YW4ta2FidWwtcm9ja2V0LWF0dGFjay5hbXAuaHRtbA?oc=5)
+---
+### **Toronto, Canada's largest city, put into lockdown as infections soar - CNN**
+#### Sat, 21 Nov 2020 12:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8yMS9hbWVyaWNhcy90b3JvbnRvLWxvY2tkb3duLWNvdmlkLWludGwvaW5kZXguaHRtbNIBUmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjAvMTEvMjEvYW1lcmljYXMvdG9yb250by1sb2NrZG93bi1jb3ZpZC1pbnRsL2luZGV4Lmh0bWw?oc=5)
+---
+### **Judge dismisses last election-related case pending in Arizona - AZCentral.com**
+#### Sat, 21 Nov 2020 05:19:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3LmF6Y2VudHJhbC5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy9lbGVjdGlvbnMvMjAyMC8xMS8yMC9hcml6b25hLW1hcmljb3BhLWNvdW50eS1lbGVjdGlvbi1jaGFsbGVuZ2UtanVkZ2UvNjM3MTAxMzAwMi_SAShodHRwczovL2FtcC5hemNlbnRyYWwuY29tL2FtcC82MzcxMDEzMDAy?oc=5)
+---
+### **Attorney: Mike Lindell Among Those Who Paid To Bail Out Kyle Rittenhouse, Charged In Kenosha Protest Shootings - CBS Minnesota**
+#### Sat, 21 Nov 2020 14:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vbWlubmVzb3RhLmNic2xvY2FsLmNvbS8yMDIwLzExLzIxL2t5bGUtcml0dGVuaG91c2UtY2hhcmdlZC1pbi1rZW5vc2hhLXByb3Rlc3Qtc2hvb3RpbmdzLXBvc3RzLTItbWlsbGlvbi1iYWlsL9IBeWh0dHBzOi8vbWlubmVzb3RhLmNic2xvY2FsLmNvbS8yMDIwLzExLzIxL2t5bGUtcml0dGVuaG91c2UtY2hhcmdlZC1pbi1rZW5vc2hhLXByb3Rlc3Qtc2hvb3RpbmdzLXBvc3RzLTItbWlsbGlvbi1iYWlsL2FtcC8?oc=5)
+---
+### **Twitter will hand @POTUS account to Joe Biden on Inauguration Day - Business Insider - Business Insider**
+#### Sat, 21 Nov 2020 09:52:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vdHdpdHRlci13aWxsLWhhbmQtcG90dXMtYWNjb3VudC10by1qb2UtYmlkZW4taW5hdWd1cmF0aW9uLWRheS0yMDIwLTEx0gFpaHR0cHM6Ly93d3cuYnVzaW5lc3NpbnNpZGVyLmNvbS90d2l0dGVyLXdpbGwtaGFuZC1wb3R1cy1hY2NvdW50LXRvLWpvZS1iaWRlbi1pbmF1Z3VyYXRpb24tZGF5LTIwMjAtMTE_YW1w?oc=5)
+---
+### **Washington's COVID-19 testing sites overwhelmed before Thanksgiving holiday - KOMO News**
+#### Sat, 21 Nov 2020 05:35:26 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8va29tb25ld3MuY29tL25ld3MvY29yb25hdmlydXMvd2FzaGluZ3RvbnMtY292aWQtMTktdGVzdGluZy1zaXRlcy1vdmVyd2hlbG1lZC1iZWZvcmUtdGhhbmtzZ2l2aW5nLWhvbGlkYXnSAXRodHRwczovL2tvbW9uZXdzLmNvbS9hbXAvbmV3cy9jb3JvbmF2aXJ1cy93YXNoaW5ndG9ucy1jb3ZpZC0xOS10ZXN0aW5nLXNpdGVzLW92ZXJ3aGVsbWVkLWJlZm9yZS10aGFua3NnaXZpbmctaG9saWRheQ?oc=5)
+---
+### **Andrew Cuomo to receive International Emmy for daily COVID-19 briefings - CBS News**
+#### Sat, 21 Nov 2020 13:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvYW5kcmV3LWN1b21vLWludGVybmF0aW9uYWwtZW1teS1hd2FyZC1jb3ZpZC1icmllZmluZ3Mv0gFXaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3MvYW5kcmV3LWN1b21vLWludGVybmF0aW9uYWwtZW1teS1hd2FyZC1jb3ZpZC1icmllZmluZ3Mv?oc=5)
+---
+### **Culture wars fuel Trump’s blue-collar Latino gains - POLITICO**
+#### Sat, 21 Nov 2020 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjAvMTEvMjEvY3VsdHVyZS13YXJzLWxhdGlub3MtdHJ1bXAtNDM4OTMy0gFOaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjAvMTEvMjEvY3VsdHVyZS13YXJzLWxhdGlub3MtdHJ1bXAtNDM4OTMy?oc=5)
+---
+### **Pizza restaurant worker’s lie led to South Australia lockdown, officials say - Fox News**
+#### Sat, 21 Nov 2020 02:12:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL2Zvb2QtZHJpbmsvcGl6emEtcmVzdGF1cmFudC13b3JrZXItbGllLXNvdXRoLWF1c3RyYWxpYS1sb2NrZG93btIBW2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL2Zvb2QtZHJpbmsvcGl6emEtcmVzdGF1cmFudC13b3JrZXItbGllLXNvdXRoLWF1c3RyYWxpYS1sb2NrZG93bi5hbXA?oc=5)
+---
+### **Saudi Arabia and Human Rights Activists Fight Over Kingdom’s Image at G20 - The New York Times**
+#### Sat, 21 Nov 2020 11:25:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjAvMTEvMjEvd29ybGQvbWlkZGxlZWFzdC9zYXVkaS1odW1hbi1yaWdodHMtRzIwLmh0bWzSAVNodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIwLzExLzIxL3dvcmxkL21pZGRsZWVhc3Qvc2F1ZGktaHVtYW4tcmlnaHRzLUcyMC5hbXAuaHRtbA?oc=5)
+---
+### **Vatican, Instagram investigating Pope's account liking lingerie model post | TheHill - The Hill**
+#### Fri, 20 Nov 2020 21:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vdGhlaGlsbC5jb20vcG9saWN5L2ludGVybmF0aW9uYWwvZXVyb3BlLzUyNjk0Mi12YXRpY2FuLWluc3RhZ3JhbS1pbnZlc3RpZ2F0aW5nLXBvcGVzLWFjY291bnQtbGlraW5nLWxpbmdlcmll0gF4aHR0cHM6Ly90aGVoaWxsLmNvbS9wb2xpY3kvaW50ZXJuYXRpb25hbC9ldXJvcGUvNTI2OTQyLXZhdGljYW4taW5zdGFncmFtLWludmVzdGlnYXRpbmctcG9wZXMtYWNjb3VudC1saWtpbmctbGluZ2VyaWU_YW1w?oc=5)
+---
+### **Princes Harry and William 'remain united' in support of BBC's Martin Bashir inquiry - Page Six**
+#### Sat, 21 Nov 2020 00:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vcGFnZXNpeC5jb20vMjAyMC8xMS8yMC9wcmluY2VzLWhhcnJ5LWFuZC13aWxsaWFtLXJlbWFpbi11bml0ZWQtaW4tc3VwcG9ydC1vZi1iYmNzLW1hcnRpbi1iYXNoaXItaW5xdWlyeS_SAXRodHRwczovL3BhZ2VzaXguY29tLzIwMjAvMTEvMjAvcHJpbmNlcy1oYXJyeS1hbmQtd2lsbGlhbS1yZW1haW4tdW5pdGVkLWluLXN1cHBvcnQtb2YtYmJjcy1tYXJ0aW4tYmFzaGlyLWlucXVpcnkvYW1wLw?oc=5)
+---
+### **Pfizer Covid Vaccine Faces Hurdles After FDA Filing Friday - msnNOW**
+#### Fri, 20 Nov 2020 22:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3Lm1zbi5jb20vZW4tdXMvaGVhbHRoL21lZGljYWwvcGZpemVyLWNvdmlkLXZhY2NpbmUtZmFjZXMtaHVyZGxlcy1hZnRlci1mZGEtZmlsaW5nLWZyaWRheS9hci1CQjFiY2VXSdIBAA?oc=5)
+---
+### **Singapore-Hong Kong travel bubble delayed amid rise in Hong Kong's coronavirus cases - CNBC**
+#### Sat, 21 Nov 2020 06:32:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTEvMjEvc2luZ2Fwb3JlLWhvbmcta29uZy10cmF2ZWwtYnViYmxlLWNvbnRpbnVlcy1hcy1ob25nLWtvbmctY292aWQtY2FzZXMtcmlzZS5odG1s0gFyaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjAvMTEvMjEvc2luZ2Fwb3JlLWhvbmcta29uZy10cmF2ZWwtYnViYmxlLWNvbnRpbnVlcy1hcy1ob25nLWtvbmctY292aWQtY2FzZXMtcmlzZS5odG1s?oc=5)
+---
+### **Mnuchin Cites Principles in Clawing Back Fed Money. Democrats See Politics. - The New York Times**
+#### Fri, 20 Nov 2020 23:05:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjAvMTEvMjAvYnVzaW5lc3MvZWNvbm9teS9tbnVjaGluLWZlZC1jb3ZpZC5odG1s0gFOaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMC8xMS8yMC9idXNpbmVzcy9lY29ub215L21udWNoaW4tZmVkLWNvdmlkLmFtcC5odG1s?oc=5)
+---
+### **3 Crazy EV Stock Ideas That Just Might Work Out - Motley Fool**
+#### Sat, 21 Nov 2020 12:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmZvb2wuY29tL2ludmVzdGluZy8yMDIwLzExLzIxLzMtY3JhenktZXYtc3RvY2staWRlYXMtdGhhdC1qdXN0LW1pZ2h0LXdvcmstb3V0L9IBXmh0dHBzOi8vd3d3LmZvb2wuY29tL2FtcC9pbnZlc3RpbmcvMjAyMC8xMS8yMS8zLWNyYXp5LWV2LXN0b2NrLWlkZWFzLXRoYXQtanVzdC1taWdodC13b3JrLW91dC8?oc=5)
+---
+### **Walmart Black Friday 2020 deals: Save on TVs, $169 AirPods Pro and $119 Apple Watch coming soon - CNET**
+#### Sat, 21 Nov 2020 13:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LmNuZXQuY29tL25ld3Mvd2FsbWFydC1ibGFjay1mcmlkYXktMjAyMC1kZWFscy1zYXZlLW9uLXR2cy0xNjktYWlycG9kcy1wcm8tYW5kLTExOS1hcHBsZS13YXRjaC1hdmFpbGFibGUtc29vbi_SAYQBaHR0cHM6Ly93d3cuY25ldC5jb20vZ29vZ2xlLWFtcC9uZXdzL3dhbG1hcnQtYmxhY2stZnJpZGF5LTIwMjAtZGVhbHMtc2F2ZS1vbi10dnMtMTY5LWFpcnBvZHMtcHJvLWFuZC0xMTktYXBwbGUtd2F0Y2gtYXZhaWxhYmxlLXNvb24v?oc=5)
+---
+### **Android Auto Occasionally Fails to Launch, and Google Needs Help to Fix This - autoevolution**
+#### Sat, 21 Nov 2020 07:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vd3d3LmF1dG9ldm9sdXRpb24uY29tL25ld3MvYW5kcm9pZC1vY2Nhc2lvbmFsbHktZmFpbHMtdG8tbGF1bmNoLWFuZC1nb29nbGUtbmVlZHMtaGVscC10by1maXgtdGhpcy0xNTE4NTEuaHRtbNIBAA?oc=5)
+---
+### **Best of Black Friday 2020 – PC Gaming: 27-inch 240Hz monitor $500, RTX 2070 Super PC $1,250, more - 9to5Toys**
+#### Fri, 20 Nov 2020 23:32:59 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vOXRvNXRveXMuY29tLzIwMjAvMTEvMjAvYmVzdC1vZi1ibGFjay1mcmlkYXktMjAyMC1wYy1nYW1pbmcv0gFEaHR0cHM6Ly85dG81dG95cy5jb20vMjAyMC8xMS8yMC9iZXN0LW9mLWJsYWNrLWZyaWRheS0yMDIwLXBjLWdhbWluZy8?oc=5)
+---
+### **PS5 orders from Amazon seemingly hit by thieves - TechRadar**
+#### Sat, 21 Nov 2020 08:44:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LnRlY2hyYWRhci5jb20vbmV3cy9wczUtb3JkZXJzLWZyb20tYW1hem9uLXNlZW1pbmdseS1oaXQtYnktdGhpZXZlc9IBUmh0dHBzOi8vd3d3LnRlY2hyYWRhci5jb20vYW1wL25ld3MvcHM1LW9yZGVycy1mcm9tLWFtYXpvbi1zZWVtaW5nbHktaGl0LWJ5LXRoaWV2ZXM?oc=5)
+---
+### **The Real Story Behind the Night Freddie Mercury Dressed Princess Diana as a Man and Took Her Clubbing - esquire.com**
+#### Sat, 21 Nov 2020 09:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmVzcXVpcmUuY29tL3VrL2N1bHR1cmUvYTM0NzM5NTE0L2RpYW5hLWZyZWRkaWUtbWVyY3VyeS10aGUtY3Jvd24v0gEA?oc=5)
+---
+### **Review: BTS’s Be is sublime comfort pop for the soul in lockdown - Vox.com**
+#### Fri, 20 Nov 2020 22:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiNGh0dHBzOi8vd3d3LnZveC5jb20vMjE1NzkwMDMvYnRzLWJlLW5ldy1hbGJ1bS1yZXZpZXfSAUFodHRwczovL3d3dy52b3guY29tL3BsYXRmb3JtL2FtcC8yMTU3OTAwMy9idHMtYmUtbmV3LWFsYnVtLXJldmlldw?oc=5)
+---
+### **"Wipeout" contestant dies after completing obstacle course - CBS News**
+#### Sat, 21 Nov 2020 13:24:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3Mvd2lwZW91dC1jb250ZXN0YW50LXJlcG9ydGVkbHktZGllcy1hZnRlci1vYnN0YWNsZS1jb3Vyc2Uv0gFaaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3Mvd2lwZW91dC1jb250ZXN0YW50LXJlcG9ydGVkbHktZGllcy1hZnRlci1vYnN0YWNsZS1jb3Vyc2Uv?oc=5)
+---
+### **‘Hallelujah’: How to watch Carrie Underwood, John Legend music video - Deseret News**
+#### Sat, 21 Nov 2020 00:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiwFodHRwczovL3d3dy5kZXNlcmV0LmNvbS9lbnRlcnRhaW5tZW50LzIwMjAvMTEvMjAvMjE1ODc3MTQvY2FycmllLXVuZGVyd29vZC1qb2huLWxlZ2VuZC1oYWxsZWx1amFoLW11c2ljLXZpZGVvLXdhdGNoLWNocmlzdG1hcy1hbGJ1bS1teS1naWZ00gGYAWh0dHBzOi8vd3d3LmRlc2VyZXQuY29tL3BsYXRmb3JtL2FtcC9lbnRlcnRhaW5tZW50LzIwMjAvMTEvMjAvMjE1ODc3MTQvY2FycmllLXVuZGVyd29vZC1qb2huLWxlZ2VuZC1oYWxsZWx1amFoLW11c2ljLXZpZGVvLXdhdGNoLWNocmlzdG1hcy1hbGJ1bS1teS1naWZ0?oc=5)
+---
+### **The larger offer Montrezl Harrell turned down before joining LeBron James, Lakers - ClutchPoints**
+#### Sat, 21 Nov 2020 08:52:34 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vY2x1dGNocG9pbnRzLmNvbS9sYWtlcnMtbmV3cy1sYXJnZXItb2ZmZXItbW9udHJlemwtaGFycmVsbC10dXJuZWQtZG93bi1iZWZvcmUtam9pbmluZy1sZWJyb24tamFtZXMtbGFrZXJzL9IBdmh0dHBzOi8vY2x1dGNocG9pbnRzLmNvbS9sYWtlcnMtbmV3cy1sYXJnZXItb2ZmZXItbW9udHJlemwtaGFycmVsbC10dXJuZWQtZG93bi1iZWZvcmUtam9pbmluZy1sZWJyb24tamFtZXMtbGFrZXJzL2FtcC8?oc=5)
+---
+### **Clemson Tigers-Florida State Seminoles game postponed - ESPN**
+#### Sat, 21 Nov 2020 14:05:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmVzcG4uY29tL2NvbGxlZ2UtZm9vdGJhbGwvc3RvcnkvXy9pZC8zMDM1Nzc4Ny9jbGVtc29uLXRpZ2Vycy1mbG9yaWRhLXN0YXRlLXNlbWlub2xlcy1nYW1lLXBvc3Rwb25lZNIBfGh0dHBzOi8vd3d3LmVzcG4uY29tL2NvbGxlZ2UtZm9vdGJhbGwvc3RvcnkvXy9pZC8zMDM1Nzc4Ny9jbGVtc29uLXRpZ2Vycy1mbG9yaWRhLXN0YXRlLXNlbWlub2xlcy1nYW1lLXBvc3Rwb25lZD9wbGF0Zm9ybT1hbXA?oc=5)
+---
+### **College football picks, schedule: Predictions against the spread, odds for big top 25 games in Week 12 - CBS Sports**
+#### Sat, 21 Nov 2020 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMilAFodHRwczovL3d3dy5jYnNzcG9ydHMuY29tL2NvbGxlZ2UtZm9vdGJhbGwvbmV3cy9jb2xsZWdlLWZvb3RiYWxsLXBpY2tzLXNjaGVkdWxlLXByZWRpY3Rpb25zLWFnYWluc3QtdGhlLXNwcmVhZC1vZGRzLWZvci1iaWctdG9wLTI1LWdhbWVzLWluLXdlZWstMTIv0gGYAWh0dHBzOi8vd3d3LmNic3Nwb3J0cy5jb20vY29sbGVnZS1mb290YmFsbC9uZXdzL2NvbGxlZ2UtZm9vdGJhbGwtcGlja3Mtc2NoZWR1bGUtcHJlZGljdGlvbnMtYWdhaW5zdC10aGUtc3ByZWFkLW9kZHMtZm9yLWJpZy10b3AtMjUtZ2FtZXMtaW4td2Vlay0xMi9hbXAv?oc=5)
+---
+### **Weekend Waiver Wire Stashes (Week 11 Fantasy Football) - FantasyPros**
+#### Sat, 21 Nov 2020 13:11:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3LmZhbnRhc3lwcm9zLmNvbS8yMDIwLzExL3dlZWtlbmQtd2FpdmVyLXdpcmUtc3Rhc2hlcy13ZWVrLTExLWZhbnRhc3ktZm9vdGJhbGwtMjAyMC_SAWJodHRwczovL3d3dy5mYW50YXN5cHJvcy5jb20vMjAyMC8xMS93ZWVrZW5kLXdhaXZlci13aXJlLXN0YXNoZXMtd2Vlay0xMS1mYW50YXN5LWZvb3RiYWxsLTIwMjAvYW1wLw?oc=5)
+---
+### **A satellite that will track Earth's sea level rise is ready to launch - CNN**
+#### Sat, 21 Nov 2020 09:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8yMS93b3JsZC9uYXNhLXNlbnRpbmVsLTYtbWljaGFlbC1mcmVpbGljaC1sYXVuY2gtc2NuL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzExLzIxL3dvcmxkL25hc2Etc2VudGluZWwtNi1taWNoYWVsLWZyZWlsaWNoLWxhdW5jaC1zY24vaW5kZXguaHRtbA?oc=5)
+---
+### **Famous Arecibo telescope that starred in a James Bond film to be demolished - CNET**
+#### Fri, 20 Nov 2020 18:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmNuZXQuY29tL25ld3MvZmFtb3VzLWFyZWNpYm8tdGVsZXNjb3BlLXRoYXQtc3RhcnJlZC1pbi1hLWphbWVzLWJvbmQtZmlsbS10by1iZS1kZW1vbGlzaGVkL9IBcWh0dHBzOi8vd3d3LmNuZXQuY29tL2dvb2dsZS1hbXAvbmV3cy9mYW1vdXMtYXJlY2liby10ZWxlc2NvcGUtdGhhdC1zdGFycmVkLWluLWEtamFtZXMtYm9uZC1maWxtLXRvLWJlLWRlbW9saXNoZWQv?oc=5)
+---
+### **Crew-rated SpaceX booster returns to Cape Canaveral with a lean - Spaceflight Now**
+#### Fri, 20 Nov 2020 21:46:51 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vc3BhY2VmbGlnaHRub3cuY29tLzIwMjAvMTEvMjAvY3Jldy1yYXRlZC1zcGFjZXgtYm9vc3Rlci1yZXR1cm5zLXRvLWNhcGUtY2FuYXZlcmFsLXdpdGgtYS1sZWFuL9IBAA?oc=5)
+---
+### **Elon Musk Says Playing Video Games Helped Make Him a Billionaire - Inc.**
+#### Sat, 21 Nov 2020 08:01:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmluYy5jb20vbWluZGEtemV0bGluL2Vsb24tbXVzay1wcm9ncmFtbWluZy1jb2RpbmctdmlkZW8tZ2FtZXMtdGVzbGEuaHRtbNIBAA?oc=5)
+---
+### **Hospitals nationwide face shortage of medical staff amid spike in COVID-19 cases - ABC News**
+#### Sat, 21 Nov 2020 10:05:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vYWJjbmV3cy5nby5jb20vUG9saXRpY3MvaG9zcGl0YWxzLW5hdGlvbndpZGUtZmFjZS1zaG9ydGFnZS1tZWRpY2FsLXN0YWZmLWFtaWQtc3Bpa2Uvc3Rvcnk_aWQ9NzQzMTkwMjDSAXFodHRwczovL2FiY25ld3MuZ28uY29tL2FtcC9Qb2xpdGljcy9ob3NwaXRhbHMtbmF0aW9ud2lkZS1mYWNlLXNob3J0YWdlLW1lZGljYWwtc3RhZmYtYW1pZC1zcGlrZS9zdG9yeT9pZD03NDMxOTAyMA?oc=5)
+---
+### **Masks mandates worked to slow the spread of Covid-19 in Kansas, CDC research shows - CNN**
+#### Sat, 21 Nov 2020 00:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMS8yMC9oZWFsdGgvbWFzay1tYW5kYXRlcy1rYW5zYXMtY29yb25hdmlydXMtd2VsbG5lc3MvaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjAvMTEvMjAvaGVhbHRoL21hc2stbWFuZGF0ZXMta2Fuc2FzLWNvcm9uYXZpcnVzLXdlbGxuZXNzL2luZGV4Lmh0bWw?oc=5)
+---
+### **St. Jude scientists make breakthrough and discover possible COVID-19 treatment - 1011now**
+#### Fri, 20 Nov 2020 17:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LjEwMTFub3cuY29tLzIwMjAvMTEvMjAvc3QtanVkZS1zY2llbnRpc3RzLW1ha2UtYnJlYWt0aHJvdWdoLWFuZC1kaXNjb3Zlci1wb3NzaWJsZS1jb3ZpZC0xOS10cmVhdG1lbnQv0gEA?oc=5)
+---
+### **A 15-year-old Kentucky girl beat cancer last summer, then died of Covid-19 this month - msnNOW**
+#### Fri, 20 Nov 2020 13:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiggFodHRwczovL3d3dy5tc24uY29tL2VuLXVzL25ld3MvdXMvYS0xNS15ZWFyLW9sZC1rZW50dWNreS1naXJsLWJlYXQtY2FuY2VyLWxhc3Qtc3VtbWVyLXRoZW4tZGllZC1vZi1jb3ZpZC0xOS10aGlzLW1vbnRoL2FyLUJCMWJjT3Nw0gEA?oc=5)
+---
