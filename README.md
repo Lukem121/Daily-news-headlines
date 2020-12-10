@@ -6838,3 +6838,117 @@
 ### **Rich countries are hoarding Covid-19 vaccines and leaving the developing world behind, People's Vaccine Alliance warns - CNN**
 #### Wed, 09 Dec 2020 14:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMi8wOS9ldXJvcGUvY292aWQtdmFjY2luZS1pbmVxdWFsaXR5LWRldmVsb3Bpbmctd29ybGQtaW50bC1zY2xpL2luZGV4Lmh0bWzSAWhodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzEyLzA5L2V1cm9wZS9jb3ZpZC12YWNjaW5lLWluZXF1YWxpdHktZGV2ZWxvcGluZy13b3JsZC1pbnRsLXNjbGkvaW5kZXguaHRtbA?oc=5)
 ---
+### **Hunter Biden’s China business deals leading up to 2018 probe detailed in Senate report - Fox News**
+#### Thu, 10 Dec 2020 06:43:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2h1bnRlci1iaWRlbnMtY2hpbmEtYnVzaW5lc3MtZGVhbHMtbGVhZGluZy11cC10by0yMDE4LXByb2JlLWRldGFpbGVkLWluLXNlbmF0ZS1yZXBvcnTSAXpodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9odW50ZXItYmlkZW5zLWNoaW5hLWJ1c2luZXNzLWRlYWxzLWxlYWRpbmctdXAtdG8tMjAxOC1wcm9iZS1kZXRhaWxlZC1pbi1zZW5hdGUtcmVwb3J0LmFtcA?oc=5)
+---
+### **Explaining the Supreme Court lawsuit from Texas and Trump challenging Biden's win - CNN**
+#### Thu, 10 Dec 2020 12:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMC8xMi8xMC9wb2xpdGljcy90cnVtcC10ZXhhcy1zdXByZW1lLWNvdXJ0LWVsZWN0aW9uL2luZGV4Lmh0bWzSAVlodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIwLzEyLzEwL3BvbGl0aWNzL3RydW1wLXRleGFzLXN1cHJlbWUtY291cnQtZWxlY3Rpb24vaW5kZXguaHRtbA?oc=5)
+---
+### **Biden's Pick for the Pentagon Instantly Becomes a 'Hot Mess' - Daily Beast**
+#### Thu, 10 Dec 2020 01:21:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL2JpZGVucy1waWNrLWZvci10aGUtcGVudGFnb24taW5zdGFudGx5LWJlY29tZXMtYS1ob3QtbWVzc9IBAA?oc=5)
+---
+### **China to Sanction US Lawmakers, Curb Some Travel for Diplomats - Bloomberg**
+#### Thu, 10 Dec 2020 08:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIwLTEyLTEwL2NoaW5hLXRvLXNhbmN0aW9uLXUtcy1sYXdtYWtlcnMtY3VyYi1zb21lLXRyYXZlbC1mb3ItZGlwbG9tYXRz0gEA?oc=5)
+---
+### **House passes 1-week stopgap spending bill - POLITICO**
+#### Wed, 09 Dec 2020 22:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjAvMTIvMDkvc3RvcGdhcC1zcGVuZGluZy1iaWxsLXBhc3Nlcy00NDM5OTTSAVBodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMC8xMi8wOS9zdG9wZ2FwLXNwZW5kaW5nLWJpbGwtcGFzc2VzLTQ0Mzk5NA?oc=5)
+---
+### **On record day for covid-19 deaths, Trump falsely proclaims at packed Hanukkah party, ‘We’re going to win this election’ - The Washington Post**
+#### Thu, 10 Dec 2020 10:18:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMC8xMi8xMC9oYW51a2thaC1wYXJ0eS10cnVtcC1jb3ZpZC1lbGVjdGlvbi1yZXN1bHRzL9IBbGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMC8xMi8xMC9oYW51a2thaC1wYXJ0eS10cnVtcC1jb3ZpZC1lbGVjdGlvbi1yZXN1bHRzLz9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
+### **Biden will travel to Georgia to boost Ossoff and Warnock in runoff elections - NBC News**
+#### Thu, 10 Dec 2020 10:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMid2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzLzIwMjAtZWxlY3Rpb24vYmlkZW4td2lsbC10cmF2ZWwtZ2VvcmdpYS1ib29zdC1vc3NvZmYtd2Fybm9jay1ydW5vZmYtZWxlY3Rpb25zLW4xMjUwNjMy0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNTA2MzI?oc=5)
+---
+### **Portland man who took part in COVID-19 vaccine trial explains his side effects, says people should get shots - KGW.com**
+#### Thu, 10 Dec 2020 02:55:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiigFodHRwczovL3d3dy5rZ3cuY29tL2FydGljbGUvbmV3cy9oZWFsdGgvY29yb25hdmlydXMvdmFjY2luZS9wb3J0bGFuZC1tYW4tY292aWQtMTktbW9kZXJuYS12YWNjaW5lLzI4My02MzgxNzA0YS05OGY0LTQwZDQtYmYwYS03NTEyNzViYTVlZTHSAY4BaHR0cHM6Ly93d3cua2d3LmNvbS9hbXAvYXJ0aWNsZS9uZXdzL2hlYWx0aC9jb3JvbmF2aXJ1cy92YWNjaW5lL3BvcnRsYW5kLW1hbi1jb3ZpZC0xOS1tb2Rlcm5hLXZhY2NpbmUvMjgzLTYzODE3MDRhLTk4ZjQtNDBkNC1iZjBhLTc1MTI3NWJhNWVlMQ?oc=5)
+---
+### **Texas first responders rescue 4-year-old who fell into 44-foot well - Fox News**
+#### Thu, 10 Dec 2020 13:37:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3VzL3RleGFzLWZpcnN0LXJlc3BvbmRlcnMtcmVzY3VlLTQteWVhci1vbGQtd2hvLWZlbGwtaW50by13ZWxs0gFaaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vdXMvdGV4YXMtZmlyc3QtcmVzcG9uZGVycy1yZXNjdWUtNC15ZWFyLW9sZC13aG8tZmVsbC1pbnRvLXdlbGwuYW1w?oc=5)
+---
+### **Black Lives Matter power grab sets off internal revolt - POLITICO**
+#### Thu, 10 Dec 2020 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjAvMTIvMTAvYmxhY2stbGl2ZXMtbWF0dGVyLW9yZ2FuaXphdGlvbi1iaWRlbi00NDQwOTfSAVlodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMC8xMi8xMC9ibGFjay1saXZlcy1tYXR0ZXItb3JnYW5pemF0aW9uLWJpZGVuLTQ0NDA5Nw?oc=5)
+---
+### **EU releases "no-deal" contingency plan as Brexit cliff looms - Axios**
+#### Thu, 10 Dec 2020 11:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LmF4aW9zLmNvbS9uby1kZWFsLWJyZXhpdC1jb250aW5nZW5jeS1wbGFucy1ldS1hZDZhNzk4Ni00OTgxLTQwOGQtYWNjNi1hZGYwYzlhNTQ1ZDMuaHRtbNIBY2h0dHBzOi8vd3d3LmF4aW9zLmNvbS9uby1kZWFsLWJyZXhpdC1jb250aW5nZW5jeS1wbGFucy1ldS1hZDZhNzk4Ni00OTgxLTQwOGQtYWNjNi1hZGYwYzlhNTQ1ZDMuaHRtbA?oc=5)
+---
+### **E.U. Insists on Rule of Law in Emerging Deal With Hungary and Poland - The New York Times**
+#### Thu, 10 Dec 2020 11:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjAvMTIvMTAvd29ybGQvZXVyb3BlL2V1LWRlYWwtcG9sYW5kLWh1bmdhcnkuaHRtbNIBT2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjAvMTIvMTAvd29ybGQvZXVyb3BlL2V1LWRlYWwtcG9sYW5kLWh1bmdhcnkuYW1wLmh0bWw?oc=5)
+---
+### **With Far-Right Extremism On The Rise, Germany Investigates Its Police - NPR**
+#### Thu, 10 Dec 2020 10:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMC8xMi8xMC85NDM4MjMwMjEvd2l0aC1mYXItcmlnaHQtZXh0cmVtaXNtLW9uLXRoZS1yaXNlLWdlcm1hbnktaW52ZXN0aWdhdGVzLWl0cy1wb2xpY2XSAQA?oc=5)
+---
+### **Runaway UPS truck slams into several parked vehicles in Denver's Harvey Park South neighborhood - The Denver Channel**
+#### Thu, 10 Dec 2020 05:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL3d3dy50aGVkZW52ZXJjaGFubmVsLmNvbS9uZXdzL2xvY2FsLW5ld3MvcnVuYXdheS11cHMtdHJ1Y2stc2xhbXMtaW50by0zLXBhcmtlZC1jYXJzLXRvdy10cnVjay1pbi1kZW52ZXJzLWhhcnZleS1wYXJrLXNvdXRoLW5laWdoYm9yaG9vZNIBAA?oc=5)
+---
+### **Airbnb Follows DoorDash Debut With $68 Surge Pricing IPO; Jim Cramer Warns on Market Orders - TheStreet**
+#### Thu, 10 Dec 2020 11:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LnRoZXN0cmVldC5jb20vaW52ZXN0aW5nL2FpcmJuYi1mb2xsb3dzLWRvb3JkYXNoLWRlYnV0LXdpdGgtNjgtc3VyZ2UtcHJpY2luZy1pcG_SAWBodHRwczovL3d3dy50aGVzdHJlZXQuY29tLy5hbXAvaW52ZXN0aW5nL2FpcmJuYi1mb2xsb3dzLWRvb3JkYXNoLWRlYnV0LXdpdGgtNjgtc3VyZ2UtcHJpY2luZy1pcG8?oc=5)
+---
+### **Facebook calls the FTC antitrust lawsuit a 'do-over' - CNBC Television**
+#### Thu, 10 Dec 2020 12:18:32 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiK2h0dHBzOi8vd3d3LnlvdXR1YmUuY29tL3dhdGNoP3Y9UEpzNGg2bHBFWXPSAQA?oc=5)
+---
+### **Jobless claims rise more than expected after break from holiday - CNBC**
+#### Thu, 10 Dec 2020 13:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiOmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjAvMTIvMTAvd2Vla2x5LWpvYmxlc3MtY2xhaW1zLmh0bWzSAT5odHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMC8xMi8xMC93ZWVrbHktam9ibGVzcy1jbGFpbXMuaHRtbA?oc=5)
+---
+### **Moderna doses first patients in Phase 2/3 study of COVID-19 vaccine in adolescents - MarketWatch**
+#### Thu, 10 Dec 2020 12:18:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5tYXJrZXR3YXRjaC5jb20vc3RvcnkvbW9kZXJuYS1kb3Nlcy1maXJzdC1wYXRpZW50cy1pbi1waGFzZS0yMy1zdHVkeS1vZi1jb3ZpZC0xOS12YWNjaW5lLWluLWFkb2xlc2NlbnRzLTIwMjAtMTItMTA_dGVzbGE9edIBggFodHRwczovL3d3dy5tYXJrZXR3YXRjaC5jb20vYW1wL3N0b3J5L21vZGVybmEtZG9zZXMtZmlyc3QtcGF0aWVudHMtaW4tcGhhc2UtMjMtc3R1ZHktb2YtY292aWQtMTktdmFjY2luZS1pbi1hZG9sZXNjZW50cy0yMDIwLTEyLTEw?oc=5)
+---
+### **AirPods Max battery replacement typo causes alarm; eBay scalpers set up shop - 9to5Mac**
+#### Thu, 10 Dec 2020 12:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiP2h0dHBzOi8vOXRvNW1hYy5jb20vMjAyMC8xMi8xMC9haXJwb2RzLW1heC1iYXR0ZXJ5LXJlcGxhY2VtZW50L9IBQ2h0dHBzOi8vOXRvNW1hYy5jb20vMjAyMC8xMi8xMC9haXJwb2RzLW1heC1iYXR0ZXJ5LXJlcGxhY2VtZW50L2FtcC8?oc=5)
+---
+### **Outages Reported Across Facebook, Instagram, WhatsApp, and Messenger - MacRumors**
+#### Thu, 10 Dec 2020 12:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3Lm1hY3J1bW9ycy5jb20vMjAyMC8xMi8xMC9vdXRhZ2VzLXJlcG9ydGVkLWFjcm9zcy1mYWNlYm9vay1zZXJ2aWNlcy_SAVNodHRwczovL3d3dy5tYWNydW1vcnMuY29tLzIwMjAvMTIvMTAvb3V0YWdlcy1yZXBvcnRlZC1hY3Jvc3MtZmFjZWJvb2stc2VydmljZXMvYW1wLw?oc=5)
+---
+### **A Warning About ‘Cyberpunk 2077’ On PS4 And Xbox One - Forbes**
+#### Thu, 10 Dec 2020 12:58:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmZvcmJlcy5jb20vc2l0ZXMvcGF1bHRhc3NpLzIwMjAvMTIvMTAvYS13YXJuaW5nLWFib3V0LWN5YmVycHVuay0yMDc3LW9uLXBzNC1hbmQteGJveC1vbmUv0gFpaHR0cHM6Ly93d3cuZm9yYmVzLmNvbS9zaXRlcy9wYXVsdGFzc2kvMjAyMC8xMi8xMC9hLXdhcm5pbmctYWJvdXQtY3liZXJwdW5rLTIwNzctb24tcHM0LWFuZC14Ym94LW9uZS9hbXAv?oc=5)
+---
+### **Cyberpunk 2077 official benchmarks show you will need a powerful rig for high-end PC gaming - Notebookcheck.net**
+#### Wed, 09 Dec 2020 18:48:09 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihwFodHRwczovL3d3dy5ub3RlYm9va2NoZWNrLm5ldC9DeWJlcnB1bmstMjA3Ny1vZmZpY2lhbC1iZW5jaG1hcmtzLXNob3cteW91LXdpbGwtbmVlZC1hLXBvd2VyZnVsLXJpZy1mb3ItaGlnaC1lbmQtUEMtZ2FtaW5nLjUwODY5OS4wLmh0bWzSAQA?oc=5)
+---
+### **Taylor Swift Releasing New Album evermore Tonight - Pitchfork**
+#### Thu, 10 Dec 2020 14:42:23 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vcGl0Y2hmb3JrLmNvbS9uZXdzL3RheWxvci1zd2lmdC1yZWxlYXNpbmctbmV3LWFsYnVtLWV2ZXJtb3JlLXRvbmlnaHQv0gFRaHR0cHM6Ly9waXRjaGZvcmsuY29tL25ld3MvdGF5bG9yLXN3aWZ0LXJlbGVhc2luZy1uZXctYWxidW0tZXZlcm1vcmUtdG9uaWdodC9hbXAv?oc=5)
+---
+### **Shaquille O’Neal caught by son sliding into Megan Thee Stallion’s Instagram Live with NSFW comment - ClutchPoints**
+#### Thu, 10 Dec 2020 02:56:18 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigwFodHRwczovL2NsdXRjaHBvaW50cy5jb20vbmJhLW5ld3Mtc2hhcXVpbGxlLW9uZWFsLWNhdWdodC1ieS1zb24tc2xpZGluZy1pbnRvLW1lZ2FuLXRoZWUtc3RhbGxpb25zLWluc3RhZ3JhbS1saXZlLXdpdGgtbnNmdy1jb21tZW50L9IBhwFodHRwczovL2NsdXRjaHBvaW50cy5jb20vbmJhLW5ld3Mtc2hhcXVpbGxlLW9uZWFsLWNhdWdodC1ieS1zb24tc2xpZGluZy1pbnRvLW1lZ2FuLXRoZWUtc3RhbGxpb25zLWluc3RhZ3JhbS1saXZlLXdpdGgtbnNmdy1jb21tZW50L2FtcC8?oc=5)
+---
+### **Songbird review: Pity the makers of the ‘Michael Bay COVID movie’ - Polygon**
+#### Thu, 10 Dec 2020 14:00:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LnBvbHlnb24uY29tLzIwMjAvMTIvMTAvMjIxNjY0OTkvc29uZ2JpcmQtcmV2aWV3LW1pY2hhZWwtYmF5LWNvdmlkLXRocmlsbGVy0gFjaHR0cHM6Ly93d3cucG9seWdvbi5jb20vcGxhdGZvcm0vYW1wLzIwMjAvMTIvMTAvMjIxNjY0OTkvc29uZ2JpcmQtcmV2aWV3LW1pY2hhZWwtYmF5LWNvdmlkLXRocmlsbGVy?oc=5)
+---
+### **Pantone’s Color of the Year is ‘The Yellow Wallpaper’ - The Cut**
+#### Wed, 09 Dec 2020 22:04:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LnRoZWN1dC5jb20vMjAyMC8xMi9wYW50b25lLTIwMjEtY29sb3Itb2YtdGhlLXllYXItdWx0aW1hdGUtZ3JheS1hbmQteWVsbG93Lmh0bWzSAV9odHRwczovL3d3dy50aGVjdXQuY29tL2FtcC8yMDIwLzEyL3BhbnRvbmUtMjAyMS1jb2xvci1vZi10aGUteWVhci11bHRpbWF0ZS1ncmF5LWFuZC15ZWxsb3cuaHRtbA?oc=5)
+---
+### **Mike Tagliere’s Week 14 Fantasy Football Rankings - FantasyPros**
+#### Thu, 10 Dec 2020 13:11:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmZhbnRhc3lwcm9zLmNvbS8yMDIwLzEyL21pa2UtdGFnbGllcmVzLXdlZWstMTQtZmFudGFzeS1mb290YmFsbC1yYW5raW5ncy0yMDIwL9IBXmh0dHBzOi8vd3d3LmZhbnRhc3lwcm9zLmNvbS8yMDIwLzEyL21pa2UtdGFnbGllcmVzLXdlZWstMTQtZmFudGFzeS1mb290YmFsbC1yYW5raW5ncy0yMDIwL2FtcC8?oc=5)
+---
+### **Mueller, Arriola prove Berhalter's USMNT options run deep ahead of loaded 2021 - ESPN**
+#### Thu, 10 Dec 2020 04:52:02 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihwFodHRwczovL3d3dy5lc3BuLmNvbS9zb2NjZXIvdW5pdGVkLXN0YXRlcy11c2Evc3RvcnkvNDI1ODQzMC9tdWVsbGVyYXJyaW9sYS1wcm92ZS1iZXJoYWx0ZXJzLXVzbW50LW9wdGlvbnMtcnVuLWRlZXAtYWhlYWQtb2YtbG9hZGVkLTIwMjHSAZQBaHR0cHM6Ly93d3cuZXNwbi5jb20vc29jY2VyL3VuaXRlZC1zdGF0ZXMtdXNhL3N0b3J5LzQyNTg0MzAvbXVlbGxlcmFycmlvbGEtcHJvdmUtYmVyaGFsdGVycy11c21udC1vcHRpb25zLXJ1bi1kZWVwLWFoZWFkLW9mLWxvYWRlZC0yMDIxP3BsYXRmb3JtPWFtcA?oc=5)
+---
+### **Cowboys 'not nervous to sign Dak' Prescott to big contract amid Eagles' issues with Carson Wentz - NFL.com**
+#### Thu, 10 Dec 2020 13:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3Lm5mbC5jb20vbmV3cy9lYWdsZXMtaXNzdWVzLXdpdGgtd2VudHotd29uLXQtbWFrZS1jb3dib3lzLW5lcnZvdXMtdG8tc2lnbi1kYWstcHJlc2NvdHQtdG8tYmlnLdIBAA?oc=5)
+---
+### **Deiveson Figueiredo reveals weight ahead of UFC 256, wants to knock mask off ‘clown’ Henry Cejudo - MMA Fighting**
+#### Thu, 10 Dec 2020 00:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijQFodHRwczovL3d3dy5tbWFmaWdodGluZy5jb20vMjAyMC8xMi85LzIyMTY2NTczL2RlaXZlc29uLWZpZ3VlaXJlZG8tcmV2ZWFscy13ZWlnaHQtYWhlYWQtb2YtdWZjLTI1Ni13YW50cy10by1rbm9jay1tYXNrLW9mZi1jbG93bi1oZW5yeS1jZWp1ZG_SAZoBaHR0cHM6Ly93d3cubW1hZmlnaHRpbmcuY29tL3BsYXRmb3JtL2FtcC8yMDIwLzEyLzkvMjIxNjY1NzMvZGVpdmVzb24tZmlndWVpcmVkby1yZXZlYWxzLXdlaWdodC1haGVhZC1vZi11ZmMtMjU2LXdhbnRzLXRvLWtub2NrLW1hc2stb2ZmLWNsb3duLWhlbnJ5LWNlanVkbw?oc=5)
+---
+### **Bees Witnessed Using Tools in Nature For The First Time... And It's Really Gross - ScienceAlert**
+#### Thu, 10 Dec 2020 06:36:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LnNjaWVuY2VhbGVydC5jb20vc2NpZW50aXN0cy1kaXNjb3Zlci10aGUtZmlyc3QtdG9vbC1hbmQtbm9uLXBsYW50LXdlYXBvbi11c2VkLWJ5LWhvbmV5YmVlcy1wb2_SAW5odHRwczovL3d3dy5zY2llbmNlYWxlcnQuY29tL3NjaWVudGlzdHMtZGlzY292ZXItdGhlLWZpcnN0LXRvb2wtYW5kLW5vbi1wbGFudC13ZWFwb24tdXNlZC1ieS1ob25leWJlZXMtcG9vL2FtcA?oc=5)
+---
+### **At his last Space Council meeting, Mike Pence announces new cadre of lunar astronauts - The Verge**
+#### Wed, 09 Dec 2020 21:50:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZXZlcmdlLmNvbS8yMDIwLzEyLzkvMjIxNjYwNzcvbmFzYS1hcnRlbWlzLWFzdHJvbmF1dHMtMTgtZmlyc3Qtd29tYW4tbW9vbi1taWtlLXBlbmNlLXNwYWNlLWNvdW5jaWzSAX1odHRwczovL3d3dy50aGV2ZXJnZS5jb20vcGxhdGZvcm0vYW1wLzIwMjAvMTIvOS8yMjE2NjA3Ny9uYXNhLWFydGVtaXMtYXN0cm9uYXV0cy0xOC1maXJzdC13b21hbi1tb29uLW1pa2UtcGVuY2Utc3BhY2UtY291bmNpbA?oc=5)
+---
+### **SpaceX launches Starship prototype on spectacular test flight, rocket explodes on touchdown - CBS News**
+#### Thu, 10 Dec 2020 00:16:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3Mvc3BhY2V4LXN0YXJzaGlwLXJvY2tldC1wcm90b3R5cGUtZXhwbG9kZXMtbGFuZGluZy_SAVNodHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbmV3cy9zcGFjZXgtc3RhcnNoaXAtcm9ja2V0LXByb3RvdHlwZS1leHBsb2Rlcy1sYW5kaW5nLw?oc=5)
+---
+### **AccuWeather: Northern lights may glow over parts of US this week - WLS-TV**
+#### Thu, 10 Dec 2020 06:15:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiIGh0dHBzOi8vYWJjN2NoaWNhZ28uY29tLzg2NDU3Nzgv0gEkaHR0cHM6Ly9hYmM3Y2hpY2Fnby5jb20vYW1wLzg2NDU3Nzgv?oc=5)
+---
+### **U.K. allergic reactions shouldn't interfere with FDA vaccine approval - Seeking Alpha**
+#### Thu, 10 Dec 2020 08:40:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vc2Vla2luZ2FscGhhLmNvbS9uZXdzLzM2NDMxNjktdS1rLWFsbGVyZ2ljLXJlYWN0aW9ucy1zaG91bGRudC1pbnRlcmZlcmUtZmRhLXZhY2NpbmUtYXBwcm92YWzSAWhodHRwczovL3NlZWtpbmdhbHBoYS5jb20vYW1wL25ld3MvMzY0MzE2OS11LWstYWxsZXJnaWMtcmVhY3Rpb25zLXNob3VsZG50LWludGVyZmVyZS1mZGEtdmFjY2luZS1hcHByb3ZhbA?oc=5)
+---
+### **L.A. health director nearly breaks down in tears at coronavirus briefing: ‘Deaths are an incalculable loss’ - Washington Post**
+#### Thu, 10 Dec 2020 12:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMC8xMi8xMC9sb3MtYW5nZWxlcy1jb3ZpZC1iYXJiYXJhLWZlcnJlci1jcmllcy_SAWdodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uLzIwMjAvMTIvMTAvbG9zLWFuZ2VsZXMtY292aWQtYmFyYmFyYS1mZXJyZXItY3JpZXMvP291dHB1dFR5cGU9YW1w?oc=5)
+---
+### **Colorado State Fire Chiefs unhappy with first responder placement on COVID vaccination plan - FOX 31 Denver**
+#### Thu, 10 Dec 2020 05:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifmh0dHBzOi8va2R2ci5jb20vbmV3cy9jb3JvbmF2aXJ1cy9jb2xvcmFkby1zdGF0ZS1maXJlLWNoaWVmcy11bmhhcHB5LXdpdGgtZmlyc3QtcmVzcG9uZGVyLXBsYWNlbWVudC1vbi1jb3ZpZC12YWNjaW5hdGlvbi1wbGFuL9IBggFodHRwczovL2tkdnIuY29tL25ld3MvY29yb25hdmlydXMvY29sb3JhZG8tc3RhdGUtZmlyZS1jaGllZnMtdW5oYXBweS13aXRoLWZpcnN0LXJlc3BvbmRlci1wbGFjZW1lbnQtb24tY292aWQtdmFjY2luYXRpb24tcGxhbi9hbXAv?oc=5)
+---
+### **Erectile Dysfunction Drug and Anti-Depressant Accidentally Swapped in Factory - Gizmodo**
+#### Thu, 10 Dec 2020 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vZ2l6bW9kby5jb20vZXJlY3RpbGUtZHlzZnVuY3Rpb24tZHJ1Zy1hbmQtYW50aS1kZXByZXNzYW50LWFjY2lkZW50YS0xODQ1ODQ4Nzg10gFaaHR0cHM6Ly9naXptb2RvLmNvbS9lcmVjdGlsZS1keXNmdW5jdGlvbi1kcnVnLWFuZC1hbnRpLWRlcHJlc3NhbnQtYWNjaWRlbnRhLTE4NDU4NDg3ODUvYW1w?oc=5)
+---
