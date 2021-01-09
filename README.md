@@ -8,3 +8,6 @@
 ### **Twitter bans Trump, says plans for Jan. 17 armed protests are circulating - CNBC**
 #### Fri, 08 Jan 2021 23:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDEvMDgvdHdpdHRlci1wZXJtYW5lbnRseS1zdXNwZW5kcy10cnVtcHMtYWNjb3VudC5odG1s0gFUaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDEvMDgvdHdpdHRlci1wZXJtYW5lbnRseS1zdXNwZW5kcy10cnVtcHMtYWNjb3VudC5odG1s?oc=5)
 ---
+### **Twitter's Trump Ban Deemed Necessary, Derided as Long Overdue - Bloomberg**
+#### Sat, 09 Jan 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIxLTAxLTA5L3R3aXR0ZXItcy10cnVtcC1iYW4tZGVlbWVkLW5lY2Vzc2FyeS1kZXJpZGVkLWFzLWxvbmctb3ZlcmR1ZdIBAA?oc=5)
+---
