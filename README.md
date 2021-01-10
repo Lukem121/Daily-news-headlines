@@ -11,3 +11,6 @@
 ### **Twitter's Trump Ban Deemed Necessary, Derided as Long Overdue - Bloomberg**
 #### Sat, 09 Jan 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIxLTAxLTA5L3R3aXR0ZXItcy10cnVtcC1iYW4tZGVlbWVkLW5lY2Vzc2FyeS1kZXJpZGVkLWFzLWxvbmctb3ZlcmR1ZdIBAA?oc=5)
 ---
+### **House Democratic leaders grapple with ramification of impeachment on Biden's opening days - CNN**
+#### Sun, 10 Jan 2021 12:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xMC9wb2xpdGljcy9pbXBlYWNobWVudC1ob3VzZS1kZW1vY3JhdHMtdHJ1bXAtYmlkZW4vaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDEvMTAvcG9saXRpY3MvaW1wZWFjaG1lbnQtaG91c2UtZGVtb2NyYXRzLXRydW1wLWJpZGVuL2luZGV4Lmh0bWw?oc=5)
+---
