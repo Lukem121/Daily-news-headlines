@@ -17,3 +17,6 @@
 ### **Pelosi lays out next steps as momentum builds for impeachment - CBS News**
 #### Mon, 11 Jan 2021 12:02:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9wZWxvc2ktdHJ1bXAtaW1wZWFjaG1lbnQtMjV0aC1hbWRlbmRtZW50LXVzLWNhcGl0b2wtcmlvdC1mYWxsb3V0L9IBamh0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9saXZlLXVwZGF0ZXMvcGVsb3NpLXRydW1wLWltcGVhY2htZW50LTI1dGgtYW1kZW5kbWVudC11cy1jYXBpdG9sLXJpb3QtZmFsbG91dC8?oc=5)
 ---
+### **House to vote on resolution calling to remove Trump from office by the 25th Amendment - CNN**
+#### Tue, 12 Jan 2021 11:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xMi9wb2xpdGljcy9ob3VzZS12b3RlLTI1dGgtYW1lbmRtZW50LXRydW1wL2luZGV4Lmh0bWzSAVZodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzAxLzEyL3BvbGl0aWNzL2hvdXNlLXZvdGUtMjV0aC1hbWVuZG1lbnQtdHJ1bXAvaW5kZXguaHRtbA?oc=5)
+---
