@@ -20,3 +20,6 @@
 ### **House to vote on resolution calling to remove Trump from office by the 25th Amendment - CNN**
 #### Tue, 12 Jan 2021 11:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xMi9wb2xpdGljcy9ob3VzZS12b3RlLTI1dGgtYW1lbmRtZW50LXRydW1wL2luZGV4Lmh0bWzSAVZodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzAxLzEyL3BvbGl0aWNzL2hvdXNlLXZvdGUtMjV0aC1hbWVuZG1lbnQtdHJ1bXAvaW5kZXguaHRtbA?oc=5)
 ---
+### **House poised to impeach Trump for second time: 'Incitement of insurrection' - NBC News**
+#### Wed, 13 Jan 2021 12:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2NvbmdyZXNzL2hvdXNlLXBvaXNlZC1pbXBlYWNoLXRydW1wLXNlY29uZC10aW1lLWluY2l0ZW1lbnQtaW5zdXJyZWN0aW9uLW4xMjU0MDUx0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNTQwNTE?oc=5)
+---
