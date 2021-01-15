@@ -26,3 +26,6 @@
 ### **Live updates: Amid fallout from Trump’s impeachment, Biden seeks to keep focus on coronavirus, economy - The Washington Post**
 #### Thu, 14 Jan 2021 13:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy8yMDIxLzAxLzE0L3RydW1wLWltcGVhY2htZW50LWJpZGVuLXRyYW5zaXRpb24tbGl2ZS11cGRhdGVzL9IBcmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy8yMDIxLzAxLzE0L3RydW1wLWltcGVhY2htZW50LWJpZGVuLXRyYW5zaXRpb24tbGl2ZS11cGRhdGVzLz9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **Since The Capitol Attack, Trump’s Approval Rating Has Plummeted At A Record Rate - FiveThirtyEight**
+#### Fri, 15 Jan 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vZml2ZXRoaXJ0eWVpZ2h0LmNvbS9mZWF0dXJlcy9zaW5jZS10aGUtY2FwaXRvbC1hdHRhY2stdHJ1bXBzLWFwcHJvdmFsLXJhdGluZy1oYXMtcGx1bW1ldGVkLWF0LWEtcmVjb3JkLXJhdGUv0gF4aHR0cHM6Ly9maXZldGhpcnR5ZWlnaHQuY29tL2ZlYXR1cmVzL3NpbmNlLXRoZS1jYXBpdG9sLWF0dGFjay10cnVtcHMtYXBwcm92YWwtcmF0aW5nLWhhcy1wbHVtbWV0ZWQtYXQtYS1yZWNvcmQtcmF0ZS9hbXAv?oc=5)
+---
