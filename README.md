@@ -32,3 +32,6 @@
 ### **Senate Republicans adrift ahead of Trump trial - POLITICO**
 #### Sat, 16 Jan 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDEvMTYvc2VuYXRlLXJlcHVibGljYW5zLXRydW1wLXRyaWFsLTQ1OTcwONIBUmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzAxLzE2L3NlbmF0ZS1yZXB1YmxpY2Fucy10cnVtcC10cmlhbC00NTk3MDg?oc=5)
 ---
+### **'Accountability for lies and lawbreaking': Biden's bipartisanship will be tested - NBC News**
+#### Sun, 17 Jan 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzLzIwMjAtZWxlY3Rpb24vYWNjb3VudGFiaWxpdHktbGllcy1sYXdicmVha2luZy1iaWRlbi1zLWJpcGFydGlzYW5zaGlwLXdpbGwtYmUtdGVzdGVkLW4xMjU0NDI30gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNTQ0Mjc?oc=5)
+---
