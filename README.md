@@ -35,3 +35,6 @@
 ### **'Accountability for lies and lawbreaking': Biden's bipartisanship will be tested - NBC News**
 #### Sun, 17 Jan 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzLzIwMjAtZWxlY3Rpb24vYWNjb3VudGFiaWxpdHktbGllcy1sYXdicmVha2luZy1iaWRlbi1zLWJpcGFydGlzYW5zaGlwLXdpbGwtYmUtdGVzdGVkLW4xMjU0NDI30gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNTQ0Mjc?oc=5)
 ---
+### **Officials remain vigilant ahead of Biden inauguration after small weekend protests - CNN**
+#### Mon, 18 Jan 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xOC91cy9pbmF1Z3VyYXRpb24tcHJvdGVzdHMtdmlnaWxhbnQvaW5kZXguaHRtbNIBT2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDEvMTgvdXMvaW5hdWd1cmF0aW9uLXByb3Rlc3RzLXZpZ2lsYW50L2luZGV4Lmh0bWw?oc=5)
+---
