@@ -38,3 +38,6 @@
 ### **Officials remain vigilant ahead of Biden inauguration after small weekend protests - CNN**
 #### Mon, 18 Jan 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xOC91cy9pbmF1Z3VyYXRpb24tcHJvdGVzdHMtdmlnaWxhbnQvaW5kZXguaHRtbNIBT2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDEvMTgvdXMvaW5hdWd1cmF0aW9uLXByb3Rlc3RzLXZpZ2lsYW50L2luZGV4Lmh0bWw?oc=5)
 ---
+### **How Trump will hand off the 'nuclear football' to Biden - CNN**
+#### Tue, 19 Jan 2021 12:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xOS9wb2xpdGljcy90cnVtcC1iaWRlbi1udWNsZWFyLWZvb3RiYWxsLWluYXVndXJhdGlvbi9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMS8xOS9wb2xpdGljcy90cnVtcC1iaWRlbi1udWNsZWFyLWZvb3RiYWxsLWluYXVndXJhdGlvbi9pbmRleC5odG1s?oc=5)
+---
