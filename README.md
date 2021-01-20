@@ -41,3 +41,6 @@
 ### **How Trump will hand off the 'nuclear football' to Biden - CNN**
 #### Tue, 19 Jan 2021 12:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8xOS9wb2xpdGljcy90cnVtcC1iaWRlbi1udWNsZWFyLWZvb3RiYWxsLWluYXVndXJhdGlvbi9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMS8xOS9wb2xpdGljcy90cnVtcC1iaWRlbi1udWNsZWFyLWZvb3RiYWxsLWluYXVndXJhdGlvbi9pbmRleC5odG1s?oc=5)
 ---
+### **World leaders welcome Biden with praise, pleas, and parting shots at Trump - CNN**
+#### Wed, 20 Jan 2021 12:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8yMC9ldXJvcGUvZ2xvYmFsLXJlYWN0aW9uLWpvZS1iaWRlbi1pbmF1Z3VyYXRpb24taW50bC9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMS8yMC9ldXJvcGUvZ2xvYmFsLXJlYWN0aW9uLWpvZS1iaWRlbi1pbmF1Z3VyYXRpb24taW50bC9pbmRleC5odG1s?oc=5)
+---
