@@ -44,3 +44,6 @@
 ### **World leaders welcome Biden with praise, pleas, and parting shots at Trump - CNN**
 #### Wed, 20 Jan 2021 12:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8yMC9ldXJvcGUvZ2xvYmFsLXJlYWN0aW9uLWpvZS1iaWRlbi1pbmF1Z3VyYXRpb24taW50bC9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMS8yMC9ldXJvcGUvZ2xvYmFsLXJlYWN0aW9uLWpvZS1iaWRlbi1pbmF1Z3VyYXRpb24taW50bC9pbmRleC5odG1s?oc=5)
 ---
+### **Biden to sign 10 executive orders and invoke Defense Production Act to combat Covid pandemic - CNBC**
+#### Thu, 21 Jan 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDEvMjEvYmlkZW4tdG8tc2lnbi0xMC1leGVjdXRpdmUtb3JkZXJzLXRvLWNvbWJhdC1jb3ZpZC1wYW5kZW1pYy1pbnZva2UtZGVmZW5zZS1wcm9kdWN0aW9uLWFjdC5odG1s0gGBAWh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzAxLzIxL2JpZGVuLXRvLXNpZ24tMTAtZXhlY3V0aXZlLW9yZGVycy10by1jb21iYXQtY292aWQtcGFuZGVtaWMtaW52b2tlLWRlZmVuc2UtcHJvZHVjdGlvbi1hY3QuaHRtbA?oc=5)
+---
