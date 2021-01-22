@@ -47,3 +47,6 @@
 ### **Biden to sign 10 executive orders and invoke Defense Production Act to combat Covid pandemic - CNBC**
 #### Thu, 21 Jan 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDEvMjEvYmlkZW4tdG8tc2lnbi0xMC1leGVjdXRpdmUtb3JkZXJzLXRvLWNvbWJhdC1jb3ZpZC1wYW5kZW1pYy1pbnZva2UtZGVmZW5zZS1wcm9kdWN0aW9uLWFjdC5odG1s0gGBAWh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzAxLzIxL2JpZGVuLXRvLXNpZ24tMTAtZXhlY3V0aXZlLW9yZGVycy10by1jb21iYXQtY292aWQtcGFuZGVtaWMtaW52b2tlLWRlZmVuc2UtcHJvZHVjdGlvbi1hY3QuaHRtbA?oc=5)
 ---
+### **Biden ordering stopgap relief as talks start on big stimulus plan - kfor.com**
+#### Fri, 22 Jan 2021 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8va2Zvci5jb20vbmV3cy9iaWRlbi1vcmRlcmluZy1zdG9wZ2FwLXJlbGllZi1hcy10YWxrcy1zdGFydC1vbi1iaWctc3RpbXVsdXMtcGxhbi_SAVxodHRwczovL2tmb3IuY29tL25ld3MvYmlkZW4tb3JkZXJpbmctc3RvcGdhcC1yZWxpZWYtYXMtdGFsa3Mtc3RhcnQtb24tYmlnLXN0aW11bHVzLXBsYW4vYW1wLw?oc=5)
+---
