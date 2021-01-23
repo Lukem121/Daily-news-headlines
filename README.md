@@ -50,3 +50,6 @@
 ### **Biden ordering stopgap relief as talks start on big stimulus plan - kfor.com**
 #### Fri, 22 Jan 2021 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8va2Zvci5jb20vbmV3cy9iaWRlbi1vcmRlcmluZy1zdG9wZ2FwLXJlbGllZi1hcy10YWxrcy1zdGFydC1vbi1iaWctc3RpbXVsdXMtcGxhbi_SAVxodHRwczovL2tmb3IuY29tL25ld3MvYmlkZW4tb3JkZXJpbmctc3RvcGdhcC1yZWxpZWYtYXMtdGFsa3Mtc3RhcnQtb24tYmlnLXN0aW11bHVzLXBsYW4vYW1wLw?oc=5)
 ---
+### **Chuck Schumer's 99 problems - POLITICO**
+#### Sat, 23 Jan 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDEvMjMvY2h1Y2stc2NodW1lci1tY2Nvbm5lbGwtcHJvYmxlbXMtNDYxNDA20gFUaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDEvMjMvY2h1Y2stc2NodW1lci1tY2Nvbm5lbGwtcHJvYmxlbXMtNDYxNDA2?oc=5)
+---
