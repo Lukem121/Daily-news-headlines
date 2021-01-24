@@ -53,3 +53,6 @@
 ### **Chuck Schumer's 99 problems - POLITICO**
 #### Sat, 23 Jan 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDEvMjMvY2h1Y2stc2NodW1lci1tY2Nvbm5lbGwtcHJvYmxlbXMtNDYxNDA20gFUaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDEvMjMvY2h1Y2stc2NodW1lci1tY2Nvbm5lbGwtcHJvYmxlbXMtNDYxNDA2?oc=5)
 ---
+### **Arizona GOP censures Flake, Ducey and McCain, signaling a fractured party in a key swing state - CNN**
+#### Sun, 24 Jan 2021 04:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8yMy9wb2xpdGljcy9hcml6b25hLWdvcC1jZW5zdXJlLW1jY2Fpbi1mbGFrZS1kdWNleS9pbmRleC5odG1s0gFdaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMS8yMy9wb2xpdGljcy9hcml6b25hLWdvcC1jZW5zdXJlLW1jY2Fpbi1mbGFrZS1kdWNleS9pbmRleC5odG1s?oc=5)
+---
