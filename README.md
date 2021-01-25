@@ -56,3 +56,6 @@
 ### **Arizona GOP censures Flake, Ducey and McCain, signaling a fractured party in a key swing state - CNN**
 #### Sun, 24 Jan 2021 04:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMS8yMy9wb2xpdGljcy9hcml6b25hLWdvcC1jZW5zdXJlLW1jY2Fpbi1mbGFrZS1kdWNleS9pbmRleC5odG1s0gFdaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMS8yMy9wb2xpdGljcy9hcml6b25hLWdvcC1jZW5zdXJlLW1jY2Fpbi1mbGFrZS1kdWNleS9pbmRleC5odG1s?oc=5)
 ---
+### **House sending Trump impeachment to Senate, GOP opposes trial - Associated Press**
+#### Mon, 25 Jan 2021 05:40:26 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL2NhcGl0b2wtc2llZ2UtZG9uYWxkLXRydW1wLXRyaWFscy1pbXBlYWNobWVudHMtdHJ1bXAtaW1wZWFjaG1lbnQtZjRiOGJmMThjZTBlMjNiODc3YmE5NDU1NDVjM2UyNTfSAQA?oc=5)
+---
