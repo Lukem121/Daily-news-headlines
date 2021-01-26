@@ -59,3 +59,6 @@
 ### **House sending Trump impeachment to Senate, GOP opposes trial - Associated Press**
 #### Mon, 25 Jan 2021 05:40:26 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL2NhcGl0b2wtc2llZ2UtZG9uYWxkLXRydW1wLXRyaWFscy1pbXBlYWNobWVudHMtdHJ1bXAtaW1wZWFjaG1lbnQtZjRiOGJmMThjZTBlMjNiODc3YmE5NDU1NDVjM2UyNTfSAQA?oc=5)
 ---
+### **McConnell Relents On Senate Filibuster Stalemate - NPR**
+#### Tue, 26 Jan 2021 11:12:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMS8yNi85NjA2MjEyMzgvbWNjb25uZWxsLXJlbGVudHMtb24tc2VuYXRlLWZpbGlidXN0ZXItc3RhbGVtYXRl0gEA?oc=5)
+---
