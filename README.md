@@ -62,3 +62,6 @@
 ### **McConnell Relents On Senate Filibuster Stalemate - NPR**
 #### Tue, 26 Jan 2021 11:12:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMS8yNi85NjA2MjEyMzgvbWNjb25uZWxsLXJlbGVudHMtb24tc2VuYXRlLWZpbGlidXN0ZXItc3RhbGVtYXRl0gEA?oc=5)
 ---
+### **Amid Grief, Rep. Jamie Raskin Leads Trump Impeachment Effort In Senate - NPR**
+#### Wed, 27 Jan 2021 10:00:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMS8yNy85NjA3NjgyODYvYW1pZC1ncmllZi1yZXAtamFtaWUtcmFza2luLWxlYWRzLXRydW1wLWltcGVhY2htZW50LWVmZm9ydC1pbi1zZW5hdGXSAQA?oc=5)
+---
