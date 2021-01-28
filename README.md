@@ -65,3 +65,6 @@
 ### **Amid Grief, Rep. Jamie Raskin Leads Trump Impeachment Effort In Senate - NPR**
 #### Wed, 27 Jan 2021 10:00:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMS8yNy85NjA3NjgyODYvYW1pZC1ncmllZi1yZXAtamFtaWUtcmFza2luLWxlYWRzLXRydW1wLWltcGVhY2htZW50LWVmZm9ydC1pbi1zZW5hdGXSAQA?oc=5)
 ---
+### **As Biden vows monumental action on climate change, a fight with the fossil fuel industry has only begun - The Washington Post**
+#### Thu, 28 Jan 2021 02:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9jbGltYXRlLWVudmlyb25tZW50LzIwMjEvMDEvMjcvYmlkZW4tY2xpbWF0ZS1jaGFuZ2Uv0gFiaHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL2NsaW1hdGUtZW52aXJvbm1lbnQvMjAyMS8wMS8yNy9iaWRlbi1jbGltYXRlLWNoYW5nZS8_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
