@@ -68,3 +68,6 @@
 ### **As Biden vows monumental action on climate change, a fight with the fossil fuel industry has only begun - The Washington Post**
 #### Thu, 28 Jan 2021 02:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9jbGltYXRlLWVudmlyb25tZW50LzIwMjEvMDEvMjcvYmlkZW4tY2xpbWF0ZS1jaGFuZ2Uv0gFiaHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL2NsaW1hdGUtZW52aXJvbm1lbnQvMjAyMS8wMS8yNy9iaWRlbi1jbGltYXRlLWNoYW5nZS8_b3V0cHV0VHlwZT1hbXA?oc=5)
 ---
+### **Battle for the GOP's future: A tale of two congresswomen - Fox News**
+#### Fri, 29 Jan 2021 08:20:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2JhdHRsZS1mb3ItZ29wcy1mdXR1cmUtYS10YWxlLW9mLXR3by1jb25ncmVzc3dvbWVu0gEA?oc=5)
+---
