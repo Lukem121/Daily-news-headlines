@@ -71,3 +71,6 @@
 ### **Battle for the GOP's future: A tale of two congresswomen - Fox News**
 #### Fri, 29 Jan 2021 08:20:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2JhdHRsZS1mb3ItZ29wcy1mdXR1cmUtYS10YWxlLW9mLXR3by1jb25ncmVzc3dvbWVu0gEA?oc=5)
 ---
+### **Rep. Cori Bush Is Moving Her Office To Be Farther Away From Marjorie Taylor Greene After A Confrontation - BuzzFeed News**
+#### Fri, 29 Jan 2021 21:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmJ1enpmZWVkbmV3cy5jb20vYXJ0aWNsZS9jbGFyaXNzYWphbmxpbS9jb3JpLWJ1c2gtbWFyam9yaWUtdGF5bG9yLWdyZWVuZS1jb25ncmVzcy1vZmZpY2XSAWRodHRwczovL3d3dy5idXp6ZmVlZG5ld3MuY29tL2FtcGh0bWwvY2xhcmlzc2FqYW5saW0vY29yaS1idXNoLW1hcmpvcmllLXRheWxvci1ncmVlbmUtY29uZ3Jlc3Mtb2ZmaWNl?oc=5)
+---
