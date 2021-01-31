@@ -74,3 +74,6 @@
 ### **Rep. Cori Bush Is Moving Her Office To Be Farther Away From Marjorie Taylor Greene After A Confrontation - BuzzFeed News**
 #### Fri, 29 Jan 2021 21:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmJ1enpmZWVkbmV3cy5jb20vYXJ0aWNsZS9jbGFyaXNzYWphbmxpbS9jb3JpLWJ1c2gtbWFyam9yaWUtdGF5bG9yLWdyZWVuZS1jb25ncmVzcy1vZmZpY2XSAWRodHRwczovL3d3dy5idXp6ZmVlZG5ld3MuY29tL2FtcGh0bWwvY2xhcmlzc2FqYW5saW0vY29yaS1idXNoLW1hcmpvcmllLXRheWxvci1ncmVlbmUtY29uZ3Jlc3Mtb2ZmaWNl?oc=5)
 ---
+### **Trump's Top Impeachment Lawyers Leave Team Days Before Trial - NPR**
+#### Sun, 31 Jan 2021 05:30:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMS8zMS85NjI0OTMzOTgvdHJ1bXBzLXRvcC1pbXBlYWNobWVudC1sYXd5ZXJzLWxlYXZlLXRlYW0tZGF5cy1iZWZvcmUtdHJpYWzSAQA?oc=5)
+---
