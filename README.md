@@ -77,3 +77,6 @@
 ### **Trump's Top Impeachment Lawyers Leave Team Days Before Trial - NPR**
 #### Sun, 31 Jan 2021 05:30:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMS8zMS85NjI0OTMzOTgvdHJ1bXBzLXRvcC1pbXBlYWNobWVudC1sYXd5ZXJzLWxlYXZlLXRlYW0tZGF5cy1iZWZvcmUtdHJpYWzSAQA?oc=5)
 ---
+### **Trump Gets New Legal Team A Week Ahead Of Senate Trial - NPR**
+#### Mon, 01 Feb 2021 05:55:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMi8wMS85NjI2ODk4ODAvdHJ1bXAtbmFtZXMtbmV3LWRlZmVuc2UtdGVhbS1haGVhZC1vZi1zZW5hdGUtaW1wZWFjaG1lbnQtdHJpYWzSAQA?oc=5)
+---
