@@ -80,3 +80,6 @@
 ### **Trump Gets New Legal Team A Week Ahead Of Senate Trial - NPR**
 #### Mon, 01 Feb 2021 05:55:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMi8wMS85NjI2ODk4ODAvdHJ1bXAtbmFtZXMtbmV3LWRlZmVuc2UtdGVhbS1haGVhZC1vZi1zZW5hdGUtaW1wZWFjaG1lbnQtdHJpYWzSAQA?oc=5)
 ---
+### **Seth Meyers Accuses Biden of Falling for GOP's Coronavirus 'Scam' - The Daily Beast**
+#### Tue, 02 Feb 2021 05:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL3NldGgtbWV5ZXJzLWFjY3VzZXMtYmlkZW4tb2YtZmFsbGluZy1mb3ItZ29wcy1jb3JvbmF2aXJ1cy1zY2Ft0gEA?oc=5)
+---
