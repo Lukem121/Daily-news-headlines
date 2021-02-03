@@ -83,3 +83,6 @@
 ### **Seth Meyers Accuses Biden of Falling for GOP's Coronavirus 'Scam' - The Daily Beast**
 #### Tue, 02 Feb 2021 05:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL3NldGgtbWV5ZXJzLWFjY3VzZXMtYmlkZW4tb2YtZmFsbGluZy1mb3ItZ29wcy1jb3JvbmF2aXJ1cy1zY2Ft0gEA?oc=5)
 ---
+### **Jimmy Kimmel Warns Melania Marjorie Taylor Greene Is 'Coming' for Trump - The Daily Beast**
+#### Wed, 03 Feb 2021 10:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL2ppbW15LWtpbW1lbC13YXJucy1tZWxhbmlhLW1hcmpvcmllLXRheWxvci1ncmVlbmUtaXMtY29taW5nLWZvci10cnVtcNIBAA?oc=5)
+---
