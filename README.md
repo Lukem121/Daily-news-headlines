@@ -86,3 +86,6 @@
 ### **Jimmy Kimmel Warns Melania Marjorie Taylor Greene Is 'Coming' for Trump - The Daily Beast**
 #### Wed, 03 Feb 2021 10:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL2ppbW15LWtpbW1lbC13YXJucy1tZWxhbmlhLW1hcmpvcmllLXRheWxvci1ncmVlbmUtaXMtY29taW5nLWZvci10cnVtcNIBAA?oc=5)
 ---
+### **Donald Trump's backers failed to take down Liz Cheney. But the GOP's 'civil war' is nowhere near over. - USA TODAY**
+#### Thu, 04 Feb 2021 11:00:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzAyLzA0L2RvbmFsZC10cnVtcC1iYWNrZXJzLWRpZG50LW91c3QtbGl6LWNoZW5leS1idXQtcmVwdWJsaWNhbi1jaXZpbC13YXItZ29lcy80MzYyMjc2MDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvNDM2MjI3NjAwMQ?oc=5)
+---
