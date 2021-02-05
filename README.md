@@ -89,3 +89,6 @@
 ### **Donald Trump's backers failed to take down Liz Cheney. But the GOP's 'civil war' is nowhere near over. - USA TODAY**
 #### Thu, 04 Feb 2021 11:00:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzAyLzA0L2RvbmFsZC10cnVtcC1iYWNrZXJzLWRpZG50LW91c3QtbGl6LWNoZW5leS1idXQtcmVwdWJsaWNhbi1jaXZpbC13YXItZ29lcy80MzYyMjc2MDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvNDM2MjI3NjAwMQ?oc=5)
 ---
+### **Senate passes key procedural step to allow Democrats to pass Covid-19 relief without threat of GOP filibuster - CNN**
+#### Fri, 05 Feb 2021 11:39:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMi8wNS9wb2xpdGljcy9zZW5hdGUtYnVkZ2V0LXJlc29sdXRpb24tY292aWQtMTktcmVsaWVmL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzAyLzA1L3BvbGl0aWNzL3NlbmF0ZS1idWRnZXQtcmVzb2x1dGlvbi1jb3ZpZC0xOS1yZWxpZWYvaW5kZXguaHRtbA?oc=5)
+---
