@@ -92,3 +92,6 @@
 ### **Senate passes key procedural step to allow Democrats to pass Covid-19 relief without threat of GOP filibuster - CNN**
 #### Fri, 05 Feb 2021 11:39:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMi8wNS9wb2xpdGljcy9zZW5hdGUtYnVkZ2V0LXJlc29sdXRpb24tY292aWQtMTktcmVsaWVmL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzAyLzA1L3BvbGl0aWNzL3NlbmF0ZS1idWRnZXQtcmVzb2x1dGlvbi1jb3ZpZC0xOS1yZWxpZWYvaW5kZXguaHRtbA?oc=5)
 ---
+### **Biden casts doubt on $15 minimum wage hike in Covid relief package - POLITICO**
+#### Sat, 06 Feb 2021 00:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMDUvYmlkZW4tbWluaW11bS13YWdlLWluY3JlYXNlLTQ2NjQwMNIBT2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzAyLzA1L2JpZGVuLW1pbmltdW0td2FnZS1pbmNyZWFzZS00NjY0MDA?oc=5)
+---
