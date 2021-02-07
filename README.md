@@ -95,3 +95,6 @@
 ### **Biden casts doubt on $15 minimum wage hike in Covid relief package - POLITICO**
 #### Sat, 06 Feb 2021 00:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMDUvYmlkZW4tbWluaW11bS13YWdlLWluY3JlYXNlLTQ2NjQwMNIBT2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzAyLzA1L2JpZGVuLW1pbmltdW0td2FnZS1pbmNyZWFzZS00NjY0MDA?oc=5)
 ---
+### **Democrats' big shift in Trump's second impeachment - POLITICO**
+#### Sun, 07 Feb 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMDcvZGVtb2NyYXRzLXRydW1wLXNlY29uZC1pbXBlYWNobWVudC00NjYxNTLSAVZodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wMi8wNy9kZW1vY3JhdHMtdHJ1bXAtc2Vjb25kLWltcGVhY2htZW50LTQ2NjE1Mg?oc=5)
+---
