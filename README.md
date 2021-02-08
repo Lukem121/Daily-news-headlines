@@ -98,3 +98,6 @@
 ### **Democrats' big shift in Trump's second impeachment - POLITICO**
 #### Sun, 07 Feb 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMDcvZGVtb2NyYXRzLXRydW1wLXNlY29uZC1pbXBlYWNobWVudC00NjYxNTLSAVZodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wMi8wNy9kZW1vY3JhdHMtdHJ1bXAtc2Vjb25kLWltcGVhY2htZW50LTQ2NjE1Mg?oc=5)
 ---
+### **Who Are David Schoen and Bruce Castor, Trump’s Impeachment Trial Lawyers? - The New York Times**
+#### Mon, 08 Feb 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDIvMDgvdXMvcG9saXRpY3MvZGF2aWQtc2Nob2VuLWJydWNlLWNhc3Rvci10cnVtcC5odG1s0gFXaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wMi8wOC91cy9wb2xpdGljcy9kYXZpZC1zY2hvZW4tYnJ1Y2UtY2FzdG9yLXRydW1wLmFtcC5odG1s?oc=5)
+---
