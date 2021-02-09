@@ -101,3 +101,6 @@
 ### **Who Are David Schoen and Bruce Castor, Trump’s Impeachment Trial Lawyers? - The New York Times**
 #### Mon, 08 Feb 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDIvMDgvdXMvcG9saXRpY3MvZGF2aWQtc2Nob2VuLWJydWNlLWNhc3Rvci10cnVtcC5odG1s0gFXaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wMi8wOC91cy9wb2xpdGljcy9kYXZpZC1zY2hvZW4tYnJ1Y2UtY2FzdG9yLXRydW1wLmFtcC5odG1s?oc=5)
 ---
+### **Impeachment Trial Day 1 Guide: Start Time, Streaming and Arguments - The New York Times**
+#### Tue, 09 Feb 2021 11:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDIvMDkvdXMvcG9saXRpY3Mvd2hhdC10aW1lLWlzLXRydW1wLWltcGVhY2htZW50LXRyaWFsLmh0bWzSAVxodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIxLzAyLzA5L3VzL3BvbGl0aWNzL3doYXQtdGltZS1pcy10cnVtcC1pbXBlYWNobWVudC10cmlhbC5hbXAuaHRtbA?oc=5)
+---
