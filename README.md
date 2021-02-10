@@ -104,3 +104,6 @@
 ### **Impeachment Trial Day 1 Guide: Start Time, Streaming and Arguments - The New York Times**
 #### Tue, 09 Feb 2021 11:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDIvMDkvdXMvcG9saXRpY3Mvd2hhdC10aW1lLWlzLXRydW1wLWltcGVhY2htZW50LXRyaWFsLmh0bWzSAVxodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIxLzAyLzA5L3VzL3BvbGl0aWNzL3doYXQtdGltZS1pcy10cnVtcC1pbXBlYWNobWVudC10cmlhbC5hbXAuaHRtbA?oc=5)
 ---
+### **Takeaways From Senate Impeachment Day 1 And What Comes Next : Trump Impeachment Trial: Live Updates - NPR**
+#### Wed, 10 Feb 2021 12:01:10 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMinQFodHRwczovL3d3dy5ucHIub3JnL3NlY3Rpb25zL3RydW1wLWltcGVhY2htZW50LXRyaWFsLWxpdmUtdXBkYXRlcy8yMDIxLzAyLzEwLzk2NTc3ODgzMy9ncmFwaGljLXZpZGVvLXJhbWJsaW5nLWRlZmVuc2UtdGFrZWF3YXlzLWZyb20tc2VuYXRlLWltcGVhY2htZW50LWRheS0x0gEA?oc=5)
+---
