@@ -107,3 +107,6 @@
 ### **Takeaways From Senate Impeachment Day 1 And What Comes Next : Trump Impeachment Trial: Live Updates - NPR**
 #### Wed, 10 Feb 2021 12:01:10 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMinQFodHRwczovL3d3dy5ucHIub3JnL3NlY3Rpb25zL3RydW1wLWltcGVhY2htZW50LXRyaWFsLWxpdmUtdXBkYXRlcy8yMDIxLzAyLzEwLzk2NTc3ODgzMy9ncmFwaGljLXZpZGVvLXJhbWJsaW5nLWRlZmVuc2UtdGFrZWF3YXlzLWZyb20tc2VuYXRlLWltcGVhY2htZW50LWRheS0x0gEA?oc=5)
 ---
+### **Tuberville says he informed Trump of Pence’s evacuation before rioters reached Senate - POLITICO**
+#### Thu, 11 Feb 2021 12:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMTEvdHViZXJ2aWxsZS1wZW5jZXMtZXZhY3VhdGlvbi10cnVtcC1pbXBlYWNobWVudC00Njg1NzLSAWJodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wMi8xMS90dWJlcnZpbGxlLXBlbmNlcy1ldmFjdWF0aW9uLXRydW1wLWltcGVhY2htZW50LTQ2ODU3Mg?oc=5)
+---
