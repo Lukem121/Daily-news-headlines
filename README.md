@@ -110,3 +110,6 @@
 ### **Tuberville says he informed Trump of Pence’s evacuation before rioters reached Senate - POLITICO**
 #### Thu, 11 Feb 2021 12:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMTEvdHViZXJ2aWxsZS1wZW5jZXMtZXZhY3VhdGlvbi10cnVtcC1pbXBlYWNobWVudC00Njg1NzLSAWJodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wMi8xMS90dWJlcnZpbGxlLXBlbmNlcy1ldmFjdWF0aW9uLXRydW1wLWltcGVhY2htZW50LTQ2ODU3Mg?oc=5)
 ---
+### **Trump's lawyers to offer a defense of the former President at impeachment trial Friday - CNN**
+#### Fri, 12 Feb 2021 10:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMi8xMi9wb2xpdGljcy9zZW5hdGUtaW1wZWFjaG1lbnQtdHJpYWwtZGF5LTQvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDIvMTIvcG9saXRpY3Mvc2VuYXRlLWltcGVhY2htZW50LXRyaWFsLWRheS00L2luZGV4Lmh0bWw?oc=5)
+---
