@@ -113,3 +113,6 @@
 ### **Trump's lawyers to offer a defense of the former President at impeachment trial Friday - CNN**
 #### Fri, 12 Feb 2021 10:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMi8xMi9wb2xpdGljcy9zZW5hdGUtaW1wZWFjaG1lbnQtdHJpYWwtZGF5LTQvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDIvMTIvcG9saXRpY3Mvc2VuYXRlLWltcGVhY2htZW50LXRyaWFsLWRheS00L2luZGV4Lmh0bWw?oc=5)
 ---
+### **Trump's impeachment lawyers rest case after 3 hours as Senate draws closer to vote - CBS News**
+#### Sat, 13 Feb 2021 12:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy90cnVtcC1pbXBlYWNobWVudC10cmlhbC1sYXd5ZXJzLXJlc3Qv0gFOaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL2xpdmUtdXBkYXRlcy90cnVtcC1pbXBlYWNobWVudC10cmlhbC1sYXd5ZXJzLXJlc3Qv?oc=5)
+---
