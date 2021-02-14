@@ -116,3 +116,6 @@
 ### **Trump's impeachment lawyers rest case after 3 hours as Senate draws closer to vote - CBS News**
 #### Sat, 13 Feb 2021 12:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy90cnVtcC1pbXBlYWNobWVudC10cmlhbC1sYXd5ZXJzLXJlc3Qv0gFOaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL2xpdmUtdXBkYXRlcy90cnVtcC1pbXBlYWNobWVudC10cmlhbC1sYXd5ZXJzLXJlc3Qv?oc=5)
 ---
+### **McConnell's next chapter: Guiding the post-Trump GOP - POLITICO**
+#### Sun, 14 Feb 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMTQvbWNjb25uZWxscy1uZXh0LWNoYXB0ZXItZ3VpZGluZy10aGUtcG9zdC10cnVtcC1nb3AtNDY5MDE00gFmaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDIvMTQvbWNjb25uZWxscy1uZXh0LWNoYXB0ZXItZ3VpZGluZy10aGUtcG9zdC10cnVtcC1nb3AtNDY5MDE0?oc=5)
+---
