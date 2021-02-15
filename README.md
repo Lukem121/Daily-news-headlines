@@ -119,3 +119,6 @@
 ### **McConnell's next chapter: Guiding the post-Trump GOP - POLITICO**
 #### Sun, 14 Feb 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDIvMTQvbWNjb25uZWxscy1uZXh0LWNoYXB0ZXItZ3VpZGluZy10aGUtcG9zdC10cnVtcC1nb3AtNDY5MDE00gFmaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDIvMTQvbWNjb25uZWxscy1uZXh0LWNoYXB0ZXItZ3VpZGluZy10aGUtcG9zdC10cnVtcC1nb3AtNDY5MDE0?oc=5)
 ---
+### **Impeachment trial solidified views on Trump conviction: POLL - ABC News**
+#### Mon, 15 Feb 2021 11:03:47 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vYWJjbmV3cy5nby5jb20vUG9saXRpY3MvaW1wZWFjaG1lbnQtdHJpYWwtc29saWRpZmllZC12aWV3cy10cnVtcC1jb252aWN0aW9uLXBvbGwvc3Rvcnk_aWQ9NzU4OTI5MTbSAW5odHRwczovL2FiY25ld3MuZ28uY29tL2FtcC9Qb2xpdGljcy9pbXBlYWNobWVudC10cmlhbC1zb2xpZGlmaWVkLXZpZXdzLXRydW1wLWNvbnZpY3Rpb24tcG9sbC9zdG9yeT9pZD03NTg5MjkxNg?oc=5)
+---
