@@ -122,3 +122,6 @@
 ### **Impeachment trial solidified views on Trump conviction: POLL - ABC News**
 #### Mon, 15 Feb 2021 11:03:47 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vYWJjbmV3cy5nby5jb20vUG9saXRpY3MvaW1wZWFjaG1lbnQtdHJpYWwtc29saWRpZmllZC12aWV3cy10cnVtcC1jb252aWN0aW9uLXBvbGwvc3Rvcnk_aWQ9NzU4OTI5MTbSAW5odHRwczovL2FiY25ld3MuZ28uY29tL2FtcC9Qb2xpdGljcy9pbXBlYWNobWVudC10cmlhbC1zb2xpZGlmaWVkLXZpZXdzLXRydW1wLWNvbnZpY3Rpb24tcG9sbC9zdG9yeT9pZD03NTg5MjkxNg?oc=5)
 ---
+### **Winter weather: 3 dead in North Carolina tornado; millions still without power in Texas; more ice, snow coming - USA TODAY**
+#### Tue, 16 Feb 2021 12:56:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL25hdGlvbi8yMDIxLzAyLzE2L2RlYWRseS13aW50ZXItc3Rvcm0tdGV4YXMtdG9ybmFkby1ub3J0aC1jYXJvbGluYS82NzYxNDA5MDAyL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvNjc2MTQwOTAwMg?oc=5)
+---
