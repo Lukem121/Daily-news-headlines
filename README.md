@@ -125,3 +125,6 @@
 ### **Winter weather: 3 dead in North Carolina tornado; millions still without power in Texas; more ice, snow coming - USA TODAY**
 #### Tue, 16 Feb 2021 12:56:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL25hdGlvbi8yMDIxLzAyLzE2L2RlYWRseS13aW50ZXItc3Rvcm0tdGV4YXMtdG9ybmFkby1ub3J0aC1jYXJvbGluYS82NzYxNDA5MDAyL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvNjc2MTQwOTAwMg?oc=5)
 ---
+### **How one Texas storm exposed an energy grid unprepared for climate change - NBC News**
+#### Wed, 17 Feb 2021 12:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3NjaWVuY2UvZW52aXJvbm1lbnQvb25lLXRleGFzLXN0b3JtLWV4cG9zZWQtZW5lcmd5LWdyaWQtdW5wcmVwYXJlZC1jbGltYXRlLWNoYW5nZS1yY25hMjg50gEoaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvcmNuYTI4OQ?oc=5)
+---
