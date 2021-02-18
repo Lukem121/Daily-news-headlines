@@ -128,3 +128,6 @@
 ### **How one Texas storm exposed an energy grid unprepared for climate change - NBC News**
 #### Wed, 17 Feb 2021 12:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3NjaWVuY2UvZW52aXJvbm1lbnQvb25lLXRleGFzLXN0b3JtLWV4cG9zZWQtZW5lcmd5LWdyaWQtdW5wcmVwYXJlZC1jbGltYXRlLWNoYW5nZS1yY25hMjg50gEoaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvcmNuYTI4OQ?oc=5)
 ---
+### **Texas power consumers to pay the price of winter storm - Fox Business**
+#### Thu, 18 Feb 2021 06:52:09 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmZveGJ1c2luZXNzLmNvbS9lbmVyZ3kvdGV4YXMtcG93ZXItY29uc3VtZXJzLXRvLXBheS10aGUtcHJpY2Utb2Ytd2ludGVyLXN0b3Jt0gFdaHR0cHM6Ly93d3cuZm94YnVzaW5lc3MuY29tL2VuZXJneS90ZXhhcy1wb3dlci1jb25zdW1lcnMtdG8tcGF5LXRoZS1wcmljZS1vZi13aW50ZXItc3Rvcm0uYW1w?oc=5)
+---
