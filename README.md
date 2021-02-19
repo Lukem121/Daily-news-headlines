@@ -131,3 +131,6 @@
 ### **Texas power consumers to pay the price of winter storm - Fox Business**
 #### Thu, 18 Feb 2021 06:52:09 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmZveGJ1c2luZXNzLmNvbS9lbmVyZ3kvdGV4YXMtcG93ZXItY29uc3VtZXJzLXRvLXBheS10aGUtcHJpY2Utb2Ytd2ludGVyLXN0b3Jt0gFdaHR0cHM6Ly93d3cuZm94YnVzaW5lc3MuY29tL2VuZXJneS90ZXhhcy1wb3dlci1jb25zdW1lcnMtdG8tcGF5LXRoZS1wcmljZS1vZi13aW50ZXItc3Rvcm0uYW1w?oc=5)
 ---
+### **One night in Cancun: Ted Cruz’s disastrous decision to go on vacation during Texas storm crisis - The Washington Post**
+#### Fri, 19 Feb 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy90ZWQtY3J1ei1jYW5jdW4tc3Rvcm0vMjAyMS8wMi8xOS9jZTFkYzI1ZS03MjUyLTExZWItOTNiZS1jMTA4MTNlMzU4YTJfc3RvcnkuaHRtbNIBhwFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vcG9saXRpY3MvdGVkLWNydXotY2FuY3VuLXN0b3JtLzIwMjEvMDIvMTkvY2UxZGMyNWUtNzI1Mi0xMWViLTkzYmUtYzEwODEzZTM1OGEyX3N0b3J5Lmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
