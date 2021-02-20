@@ -134,3 +134,6 @@
 ### **One night in Cancun: Ted Cruz’s disastrous decision to go on vacation during Texas storm crisis - The Washington Post**
 #### Fri, 19 Feb 2021 11:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy90ZWQtY3J1ei1jYW5jdW4tc3Rvcm0vMjAyMS8wMi8xOS9jZTFkYzI1ZS03MjUyLTExZWItOTNiZS1jMTA4MTNlMzU4YTJfc3RvcnkuaHRtbNIBhwFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vcG9saXRpY3MvdGVkLWNydXotY2FuY3VuLXN0b3JtLzIwMjEvMDIvMTkvY2UxZGMyNWUtNzI1Mi0xMWViLTkzYmUtYzEwODEzZTM1OGEyX3N0b3J5Lmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
 ---
+### **Cuomo finally getting media scrutiny he deserves, new NY congresswoman says - Fox News**
+#### Sat, 20 Feb 2021 10:55:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2N1b21vLWZpbmFsbHktZ2V0dGluZy1tZWRpYS1zY3J1dGlueS1oZS1kZXNlcnZlcy1uZXctbnktY29uZ3Jlc3N3b21hbi1zYXlz0gFsaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vbWVkaWEvY3VvbW8tZmluYWxseS1nZXR0aW5nLW1lZGlhLXNjcnV0aW55LWhlLWRlc2VydmVzLW5ldy1ueS1jb25ncmVzc3dvbWFuLXNheXMuYW1w?oc=5)
+---
