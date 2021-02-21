@@ -137,3 +137,6 @@
 ### **Cuomo finally getting media scrutiny he deserves, new NY congresswoman says - Fox News**
 #### Sat, 20 Feb 2021 10:55:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2N1b21vLWZpbmFsbHktZ2V0dGluZy1tZWRpYS1zY3J1dGlueS1oZS1kZXNlcnZlcy1uZXctbnktY29uZ3Jlc3N3b21hbi1zYXlz0gFsaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vbWVkaWEvY3VvbW8tZmluYWxseS1nZXR0aW5nLW1lZGlhLXNjcnV0aW55LWhlLWRlc2VydmVzLW5ldy1ueS1jb25ncmVzc3dvbWFuLXNheXMuYW1w?oc=5)
 ---
+### **Trump to speak at CPAC in first public appearance since leaving White House, while Pence declines invitation - CNN **
+#### Sun, 21 Feb 2021 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMi8yMC9wb2xpdGljcy90cnVtcC1jcGFjLXJlcHVibGljYW4tcGFydHkvaW5kZXguaHRtbNIBUmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDIvMjAvcG9saXRpY3MvdHJ1bXAtY3BhYy1yZXB1YmxpY2FuLXBhcnR5L2luZGV4Lmh0bWw?oc=5)
+---
