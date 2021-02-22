@@ -140,3 +140,6 @@
 ### **Trump to speak at CPAC in first public appearance since leaving White House, while Pence declines invitation - CNN **
 #### Sun, 21 Feb 2021 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMi8yMC9wb2xpdGljcy90cnVtcC1jcGFjLXJlcHVibGljYW4tcGFydHkvaW5kZXguaHRtbNIBUmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDIvMjAvcG9saXRpY3MvdHJ1bXAtY3BhYy1yZXB1YmxpY2FuLXBhcnR5L2luZGV4Lmh0bWw?oc=5)
 ---
+### **Congress takes up COVID-19 relief, Merrick Garland Senate hearing: 5 things you need to know Monday - USA TODAY**
+#### Mon, 22 Feb 2021 08:39:26 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiggFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy8yMDIxLzAyLzIyL21lcnJpY2stZ2FybGFuZC1jb3ZpZC0xOS1yZWxpZWYtbmFzYXMtcGVyc2V2ZXJhbmNlLTUtdGhpbmdzLWtub3ctbW9uZGF5LzQ1MzIwNDIwMDEv0gEnaHR0cHM6Ly9hbXAudXNhdG9kYXkuY29tL2FtcC80NTMyMDQyMDAx?oc=5)
+---
