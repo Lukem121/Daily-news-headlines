@@ -149,3 +149,6 @@
 ### **Biden To Sign Order Seeking Homegrown Fixes For Shortfalls Of Foreign-Made Items - NPR**
 #### Wed, 24 Feb 2021 10:00:32 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMi8yNC85NzA3ODAyNzQvYmlkZW4tdG8tc2lnbi1vcmRlci1zZWVraW5nLWhvbWVncm93bi1maXhlcy1mb3Itc2hvcnRmYWxscy1vZi1mb3JlaWduLW1hZGUtaXRlbXPSAQA?oc=5)
 ---
+### **CPAC Preview: Trump, Election Claims At Conservative Confab - NPR**
+#### Thu, 25 Feb 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMi8yNS85NzExMzA3NTUvaXRzLWFsbC1hYm91dC10cnVtcC1jcGFjLXNlZW1zLXBvaXNlZC10by1pZ25vcmUtcmVwdWJsaWNhbi1pZGVudGl0eS1jcmlzaXPSAQA?oc=5)
+---
