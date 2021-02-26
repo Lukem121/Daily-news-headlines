@@ -152,3 +152,6 @@
 ### **CPAC Preview: Trump, Election Claims At Conservative Confab - NPR**
 #### Thu, 25 Feb 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMi8yNS85NzExMzA3NTUvaXRzLWFsbC1hYm91dC10cnVtcC1jcGFjLXNlZW1zLXBvaXNlZC10by1pZ25vcmUtcmVwdWJsaWNhbi1pZGVudGl0eS1jcmlzaXPSAQA?oc=5)
 ---
+### **House set to approve Biden’s $1.9 trillion stimulus package, send bill to the Senate - CNBC**
+#### Fri, 26 Feb 2021 11:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDIvMjYvY29yb25hdmlydXMtc3RpbXVsdXMtdXBkYXRlLWhvdXNlLXRvLXBhc3MtMXBvaW50OS10cmlsbGlvbi1iaWRlbi1yZWxpZWYtYmlsbC5odG1s0gF1aHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDIvMjYvY29yb25hdmlydXMtc3RpbXVsdXMtdXBkYXRlLWhvdXNlLXRvLXBhc3MtMXBvaW50OS10cmlsbGlvbi1iaWRlbi1yZWxpZWYtYmlsbC5odG1s?oc=5)
+---
