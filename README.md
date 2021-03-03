@@ -167,3 +167,6 @@
 ### **Livestream: FBI Director Wray Testifies On Riot, Extremism - NPR**
 #### Tue, 02 Mar 2021 10:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMy8wMi85NzI1MzkyNzQvZmJpLWRpcmVjdG9yLXdyYXktdGVzdGlmaWVzLWJlZm9yZS1jb25ncmVzcy1mb3ItMXN0LXRpbWUtc2luY2UtY2FwaXRvbC1hdHRhY2vSAQA?oc=5)
 ---
+### **Biden camp fumed over Cuomo’s self-serving DNC speech, book claims - Fox News**
+#### Wed, 03 Mar 2021 09:40:13 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2JpZGVuLWNhbXAtZnVtZWQtb3Zlci1jdW9tb3Mtc2VsZi1zZXJ2aW5nLWRuYy1zcGVlY2gtYm9vay1jbGFpbXPSAWJodHRwczovL3d3dy5mb3huZXdzLmNvbS9tZWRpYS9iaWRlbi1jYW1wLWZ1bWVkLW92ZXItY3VvbW9zLXNlbGYtc2VydmluZy1kbmMtc3BlZWNoLWJvb2stY2xhaW1zLmFtcA?oc=5)
+---
