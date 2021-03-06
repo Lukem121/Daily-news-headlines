@@ -176,3 +176,6 @@
 ### **Cuomo advisers altered report on coronavirus nursing-home deaths: WSJ - Fox News**
 #### Fri, 05 Mar 2021 04:42:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2N1b21vLWFkdmlzZXJzLWFsdGVyZWQtcmVwb3J0LW9uLWNvcm9uYXZpcnVzLW51cnNpbmctaG9tZS1kZWF0aHMtd3Nq0gFpaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vcG9saXRpY3MvY3VvbW8tYWR2aXNlcnMtYWx0ZXJlZC1yZXBvcnQtb24tY29yb25hdmlydXMtbnVyc2luZy1ob21lLWRlYXRocy13c2ouYW1w?oc=5)
 ---
+### **Senate moves forward with stimulus bill "vote-a-rama" after nearly 12 hours of stalemate - CBS News**
+#### Sat, 06 Mar 2021 11:11:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvY292aWQtcmVsaWVmLWJpbGwtc2VuYXRlLWRlYmF0ZS13YXRjaC1saXZlLXN0cmVhbS10b2RheS0yMDIxLTAzLTA2L9IBZGh0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9uZXdzL2NvdmlkLXJlbGllZi1iaWxsLXNlbmF0ZS1kZWJhdGUtd2F0Y2gtbGl2ZS1zdHJlYW0tdG9kYXktMjAyMS0wMy0wNi8?oc=5)
+---
