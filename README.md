@@ -179,3 +179,6 @@
 ### **Senate moves forward with stimulus bill "vote-a-rama" after nearly 12 hours of stalemate - CBS News**
 #### Sat, 06 Mar 2021 11:11:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvY292aWQtcmVsaWVmLWJpbGwtc2VuYXRlLWRlYmF0ZS13YXRjaC1saXZlLXN0cmVhbS10b2RheS0yMDIxLTAzLTA2L9IBZGh0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9uZXdzL2NvdmlkLXJlbGllZi1iaWxsLXNlbmF0ZS1kZWJhdGUtd2F0Y2gtbGl2ZS1zdHJlYW0tdG9kYXktMjAyMS0wMy0wNi8?oc=5)
 ---
+### **Biden to issue voting access executive order on anniversary of Bloody Sunday - POLITICO**
+#### Sun, 07 Mar 2021 10:00:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQ2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDMvMDcvYmlkZW4tdm90aW5nLWFjY2Vzcy00NzQwNDHSAUdodHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wMy8wNy9iaWRlbi12b3RpbmctYWNjZXNzLTQ3NDA0MQ?oc=5)
+---
