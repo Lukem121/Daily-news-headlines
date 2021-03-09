@@ -185,3 +185,6 @@
 ### **Cuomo: Nearly 50 New York lawmakers call for governor to either resign or be impeached - Fox News**
 #### Mon, 08 Mar 2021 04:32:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2N1b21vLW5lYXJseS01MC1uZXcteW9yay1sYXdtYWtlcnMtY2FsbC1mb3ItZ292ZXJub3ItdG8tZWl0aGVyLXJlc2lnbi1vci1iZS1pbXBlYWNoZWTSAXpodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9jdW9tby1uZWFybHktNTAtbmV3LXlvcmstbGF3bWFrZXJzLWNhbGwtZm9yLWdvdmVybm9yLXRvLWVpdGhlci1yZXNpZ24tb3ItYmUtaW1wZWFjaGVkLmFtcA?oc=5)
 ---
+### **Dems ready to leap on Biden's $1.9T Covid aid plan as final vote nears - POLITICO**
+#### Tue, 09 Mar 2021 09:30:52 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDMvMDkvY292aWQtaG91c2Utdm90ZS1wcmV2aWV3LTQ3NDQwNdIBTGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzAzLzA5L2NvdmlkLWhvdXNlLXZvdGUtcHJldmlldy00NzQ0MDU?oc=5)
+---
