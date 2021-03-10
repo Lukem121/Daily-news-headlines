@@ -188,3 +188,6 @@
 ### **Dems ready to leap on Biden's $1.9T Covid aid plan as final vote nears - POLITICO**
 #### Tue, 09 Mar 2021 09:30:52 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDMvMDkvY292aWQtaG91c2Utdm90ZS1wcmV2aWV3LTQ3NDQwNdIBTGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzAzLzA5L2NvdmlkLWhvdXNlLXZvdGUtcHJldmlldy00NzQ0MDU?oc=5)
 ---
+### **Biden Stimulus Nears Finish Line With House Vote Wednesday - Bloomberg**
+#### Wed, 10 Mar 2021 07:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIxLTAzLTEwL2JpZGVuLXN0aW11bHVzLW5lYXJzLWZpbmFsLWFwcHJvdmFsLXdpdGgtaG91c2Utdm90ZS13ZWRuZXNkYXnSAQA?oc=5)
+---
