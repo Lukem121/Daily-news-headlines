@@ -191,3 +191,6 @@
 ### **Biden Stimulus Nears Finish Line With House Vote Wednesday - Bloomberg**
 #### Wed, 10 Mar 2021 07:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIxLTAzLTEwL2JpZGVuLXN0aW11bHVzLW5lYXJzLWZpbmFsLWFwcHJvdmFsLXdpdGgtaG91c2Utdm90ZS13ZWRuZXNkYXnSAQA?oc=5)
 ---
+### **Prince William says royals are 'very much not a racist family' in first remarks since explosive interview - CNN**
+#### Thu, 11 Mar 2021 12:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xMS91ay9wcmluY2Utd2lsbGlhbS1yZXNwb25zZS1yYWNpc20taGFycnktbWVnaGFuLWludGwtZ2JyL2luZGV4Lmh0bWzSAWVodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzAzLzExL3VrL3ByaW5jZS13aWxsaWFtLXJlc3BvbnNlLXJhY2lzbS1oYXJyeS1tZWdoYW4taW50bC1nYnIvaW5kZXguaHRtbA?oc=5)
+---
