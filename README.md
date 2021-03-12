@@ -194,3 +194,6 @@
 ### **Prince William says royals are 'very much not a racist family' in first remarks since explosive interview - CNN**
 #### Thu, 11 Mar 2021 12:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xMS91ay9wcmluY2Utd2lsbGlhbS1yZXNwb25zZS1yYWNpc20taGFycnktbWVnaGFuLWludGwtZ2JyL2luZGV4Lmh0bWzSAWVodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzAzLzExL3VrL3ByaW5jZS13aWxsaWFtLXJlc3BvbnNlLXJhY2lzbS1oYXJyeS1tZWdoYW4taW50bC1nYnIvaW5kZXguaHRtbA?oc=5)
 ---
+### **Fact-checking Biden's first prime-time address - CNN**
+#### Fri, 12 Mar 2021 11:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xMi9wb2xpdGljcy9qb2UtYmlkZW4tcHJpbWUtdGltZS1hZGRyZXNzLWZhY3QtY2hlY2svaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDMvMTIvcG9saXRpY3Mvam9lLWJpZGVuLXByaW1lLXRpbWUtYWRkcmVzcy1mYWN0LWNoZWNrL2luZGV4Lmh0bWw?oc=5)
+---
