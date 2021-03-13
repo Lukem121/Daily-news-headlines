@@ -197,3 +197,6 @@
 ### **Fact-checking Biden's first prime-time address - CNN**
 #### Fri, 12 Mar 2021 11:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xMi9wb2xpdGljcy9qb2UtYmlkZW4tcHJpbWUtdGltZS1hZGRyZXNzLWZhY3QtY2hlY2svaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDMvMTIvcG9saXRpY3Mvam9lLWJpZGVuLXByaW1lLXRpbWUtYWRkcmVzcy1mYWN0LWNoZWNrL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Dentists and midwives giving shots, 4,000 troops to help: How Biden is expanding COVID-19 vaccinations - USA TODAY**
+#### Fri, 12 Mar 2021 19:26:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiggFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzAzLzEyL2NvdmlkLTE5LXZhY2NpbmUtam9lLWJpZGVuLWV4cGFuZHMtd2F5cy1hbWVyaWNhbnMtY2FuLWdldC1zaG90LzQ2NjI5NzUwMDEv0gEnaHR0cHM6Ly9hbXAudXNhdG9kYXkuY29tL2FtcC80NjYyOTc1MDAx?oc=5)
+---
