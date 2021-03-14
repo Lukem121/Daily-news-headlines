@@ -200,3 +200,6 @@
 ### **Dentists and midwives giving shots, 4,000 troops to help: How Biden is expanding COVID-19 vaccinations - USA TODAY**
 #### Fri, 12 Mar 2021 19:26:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiggFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzAzLzEyL2NvdmlkLTE5LXZhY2NpbmUtam9lLWJpZGVuLWV4cGFuZHMtd2F5cy1hbWVyaWNhbnMtY2FuLWdldC1zaG90LzQ2NjI5NzUwMDEv0gEnaHR0cHM6Ly9hbXAudXNhdG9kYXkuY29tL2FtcC80NjYyOTc1MDAx?oc=5)
 ---
+### **London police chief faces calls to resign after officers smash vigil to murdered Sarah Everard - CNN**
+#### Sun, 14 Mar 2021 13:28:59 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xNC91ay9zYXJhaC1ldmVyYXJkLXZpZ2lsLXBvbGljZS1yZXNwb25zZS1nYnItaW50bC9pbmRleC5odG1s0gFdaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMy8xNC91ay9zYXJhaC1ldmVyYXJkLXZpZ2lsLXBvbGljZS1yZXNwb25zZS1nYnItaW50bC9pbmRleC5odG1s?oc=5)
+---
