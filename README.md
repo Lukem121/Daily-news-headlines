@@ -203,3 +203,6 @@
 ### **London police chief faces calls to resign after officers smash vigil to murdered Sarah Everard - CNN**
 #### Sun, 14 Mar 2021 13:28:59 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xNC91ay9zYXJhaC1ldmVyYXJkLXZpZ2lsLXBvbGljZS1yZXNwb25zZS1nYnItaW50bC9pbmRleC5odG1s0gFdaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wMy8xNC91ay9zYXJhaC1ldmVyYXJkLXZpZ2lsLXBvbGljZS1yZXNwb25zZS1nYnItaW50bC9pbmRleC5odG1s?oc=5)
 ---
+### **Vatican says Catholic Church can't bless same sex unions - NBC News**
+#### Mon, 15 Mar 2021 13:08:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvdmF0aWNhbi1zYXlzLWNhdGhvbGljLWNodXJjaC1jYW4tdC1ibGVzcy1zYW1lLXNleC11bmlvbnMtbjEyNjEwNzbSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI2MTA3Ng?oc=5)
+---
