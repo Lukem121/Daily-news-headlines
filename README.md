@@ -209,3 +209,6 @@
 ### **Gavel and whip in hand, Dick Durbin tries to have it all - POLITICO**
 #### Tue, 16 Mar 2021 08:30:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDMvMTYvZGljay1kdXJiaW4tbWFqb3JpdHktd2hpcC1qdWRpY2lhcnktNDc2MDMx0gFXaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDMvMTYvZGljay1kdXJiaW4tbWFqb3JpdHktd2hpcC1qdWRpY2lhcnktNDc2MDMx?oc=5)
 ---
+### **In one hour, Atlanta-area spa shootings left 8 dead, including 6 Asian women, local reports say - CNN**
+#### Wed, 17 Mar 2021 13:00:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xNy91cy9tZXRyby1hdGxhbnRhLXNob290aW5ncy13ZWRuZXNkYXkvaW5kZXguaHRtbNIBUmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDMvMTcvdXMvbWV0cm8tYXRsYW50YS1zaG9vdGluZ3Mtd2VkbmVzZGF5L2luZGV4Lmh0bWw?oc=5)
+---
