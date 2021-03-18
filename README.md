@@ -212,3 +212,6 @@
 ### **In one hour, Atlanta-area spa shootings left 8 dead, including 6 Asian women, local reports say - CNN**
 #### Wed, 17 Mar 2021 13:00:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xNy91cy9tZXRyby1hdGxhbnRhLXNob290aW5ncy13ZWRuZXNkYXkvaW5kZXguaHRtbNIBUmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDMvMTcvdXMvbWV0cm8tYXRsYW50YS1zaG9vdGluZ3Mtd2VkbmVzZGF5L2luZGV4Lmh0bWw?oc=5)
 ---
+### **Daniel Dae Kim, members of Congress to testify on discrimination and violence against Asian Americans - ABC News**
+#### Thu, 18 Mar 2021 09:18:02 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vYWJjbmV3cy5nby5jb20vUG9saXRpY3MvZGFuaWVsLWRhZS1raW0tbWVtYmVycy1jb25ncmVzcy10ZXN0aWZ5LWRpc2NyaW1pbmF0aW9uLXZpb2xlbmNlL3N0b3J5P2lkPTc2NTE1NDk10gF1aHR0cHM6Ly9hYmNuZXdzLmdvLmNvbS9hbXAvUG9saXRpY3MvZGFuaWVsLWRhZS1raW0tbWVtYmVycy1jb25ncmVzcy10ZXN0aWZ5LWRpc2NyaW1pbmF0aW9uLXZpb2xlbmNlL3N0b3J5P2lkPTc2NTE1NDk1?oc=5)
+---
