@@ -218,3 +218,6 @@
 ### **Some officials call for hate crime charges in the Atlanta-area spa shootings that left 8 dead - CNN**
 #### Fri, 19 Mar 2021 09:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wMy8xOS91cy9tZXRyby1hdGxhbnRhLXNob290aW5ncy1mcmlkYXkvaW5kZXguaHRtbNIBT2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDMvMTkvdXMvbWV0cm8tYXRsYW50YS1zaG9vdGluZ3MtZnJpZGF5L2luZGV4Lmh0bWw?oc=5)
 ---
+### **AAPI Leaders Define Actions For Biden To Take Against Hate - NPR**
+#### Sat, 20 Mar 2021 11:00:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMy8yMC85NzkzNTY2NzUvaG93LWFzaWFuLWFtZXJpY2FuLWxlYWRlcnMtc2F5LXRoZS1iaWRlbi1hZG1pbmlzdHJhdGlvbi1jYW4tYWRkcmVzcy1oYXRl0gEA?oc=5)
+---
