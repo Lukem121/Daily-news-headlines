@@ -221,3 +221,6 @@
 ### **AAPI Leaders Define Actions For Biden To Take Against Hate - NPR**
 #### Sat, 20 Mar 2021 11:00:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wMy8yMC85NzkzNTY2NzUvaG93LWFzaWFuLWFtZXJpY2FuLWxlYWRlcnMtc2F5LXRoZS1iaWRlbi1hZG1pbmlzdHJhdGlvbi1jYW4tYWRkcmVzcy1oYXRl0gEA?oc=5)
 ---
+### **Residents happy, visitors understanding about Miami Beach road closures amid Spring Break chaos - WPLG Local 10**
+#### Sun, 21 Mar 2021 03:40:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijQFodHRwczovL3d3dy5sb2NhbDEwLmNvbS9uZXdzL2xvY2FsLzIwMjEvMDMvMjEvcmVzaWRlbnRzLWhhcHB5LXZpc2l0b3JzLXVuZGVyc3RhbmRpbmctYWJvdXQtbWlhbWktYmVhY2gtcm9hZC1jbG9zdXJlcy1hbWlkLXNwcmluZy1icmVhay1jaGFvcy_SAQA?oc=5)
+---
