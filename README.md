@@ -224,3 +224,6 @@
 ### **Residents happy, visitors understanding about Miami Beach road closures amid Spring Break chaos - WPLG Local 10**
 #### Sun, 21 Mar 2021 03:40:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijQFodHRwczovL3d3dy5sb2NhbDEwLmNvbS9uZXdzL2xvY2FsLzIwMjEvMDMvMjEvcmVzaWRlbnRzLWhhcHB5LXZpc2l0b3JzLXVuZGVyc3RhbmRpbmctYWJvdXQtbWlhbWktYmVhY2gtcm9hZC1jbG9zdXJlcy1hbWlkLXNwcmluZy1icmVhay1jaGFvcy_SAQA?oc=5)
 ---
+### **Border crisis: 823 unaccompanied migrant children held in border patrol custody for over 10 days: report - Fox News**
+#### Mon, 22 Mar 2021 03:25:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9ib3JkZXItY3Jpc2lzLTgyMy11bmFjY29tcGFuaWVkLW1pZ3JhbnQtY2hpbGRyZW4taGVsZC1pbi1ib2Rlci1wYXRyb2wtY3VzdG9keS1mb3Itb3Zlci0xMC1kYXlzLXJlcG9ydNIBigFodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9ib3JkZXItY3Jpc2lzLTgyMy11bmFjY29tcGFuaWVkLW1pZ3JhbnQtY2hpbGRyZW4taGVsZC1pbi1ib2Rlci1wYXRyb2wtY3VzdG9keS1mb3Itb3Zlci0xMC1kYXlzLXJlcG9ydC5hbXA?oc=5)
+---
