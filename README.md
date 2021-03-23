@@ -227,3 +227,6 @@
 ### **Border crisis: 823 unaccompanied migrant children held in border patrol custody for over 10 days: report - Fox News**
 #### Mon, 22 Mar 2021 03:25:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9ib3JkZXItY3Jpc2lzLTgyMy11bmFjY29tcGFuaWVkLW1pZ3JhbnQtY2hpbGRyZW4taGVsZC1pbi1ib2Rlci1wYXRyb2wtY3VzdG9keS1mb3Itb3Zlci0xMC1kYXlzLXJlcG9ydNIBigFodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9ib3JkZXItY3Jpc2lzLTgyMy11bmFjY29tcGFuaWVkLW1pZ3JhbnQtY2hpbGRyZW4taGVsZC1pbi1ib2Rlci1wYXRyb2wtY3VzdG9keS1mb3Itb3Zlci0xMC1kYXlzLXJlcG9ydC5hbXA?oc=5)
 ---
+### **Live Updates: 10 killed in mass shooting at Boulder, Colorado, supermarket - CBS News**
+#### Tue, 23 Mar 2021 13:21:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9ib3VsZGVyLXNob290aW5nLWNvbG9yYWRvLTIwMjEtMDMtMjMv0gFOaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL2xpdmUtdXBkYXRlcy9ib3VsZGVyLXNob290aW5nLWNvbG9yYWRvLTIwMjEtMDMtMjMv?oc=5)
+---
