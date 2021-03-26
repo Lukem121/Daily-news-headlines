@@ -236,3 +236,6 @@
 ### **How to watch Biden's first presidential press conference - CBS News**
 #### Thu, 25 Mar 2021 10:48:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvYmlkZW4tcHJlc3MtY29uZmVyZW5jZS13YXRjaC10aW1lLXN0cmVhbS1vbmxpbmUtbGl2ZS1zdHJlYW0tdG9kYXktMjAyMS0wMy0yNS_SAW5odHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbmV3cy9iaWRlbi1wcmVzcy1jb25mZXJlbmNlLXdhdGNoLXRpbWUtc3RyZWFtLW9ubGluZS1saXZlLXN0cmVhbS10b2RheS0yMDIxLTAzLTI1Lw?oc=5)
 ---
+### **‘Oh God I miss him’: Biden keeps returning to Trump as a cause of nation’s troubles - The Washington Post**
+#### Fri, 26 Mar 2021 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy9iaWRlbi10cnVtcC8yMDIxLzAzLzI1LzQ5MmUxMmZjLThkYTQtMTFlYi1hNzMwLTFiNGVkOTY1NjI1OF9zdG9yeS5odG1s0gF9aHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL3BvbGl0aWNzL2JpZGVuLXRydW1wLzIwMjEvMDMvMjUvNDkyZTEyZmMtOGRhNC0xMWViLWE3MzAtMWI0ZWQ5NjU2MjU4X3N0b3J5Lmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
