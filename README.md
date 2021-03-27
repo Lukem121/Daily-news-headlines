@@ -239,3 +239,6 @@
 ### **‘Oh God I miss him’: Biden keeps returning to Trump as a cause of nation’s troubles - The Washington Post**
 #### Fri, 26 Mar 2021 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy9iaWRlbi10cnVtcC8yMDIxLzAzLzI1LzQ5MmUxMmZjLThkYTQtMTFlYi1hNzMwLTFiNGVkOTY1NjI1OF9zdG9yeS5odG1s0gF9aHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL3BvbGl0aWNzL2JpZGVuLXRydW1wLzIwMjEvMDMvMjUvNDkyZTEyZmMtOGRhNC0xMWViLWE3MzAtMWI0ZWQ5NjU2MjU4X3N0b3J5Lmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
 ---
+### **Cargo ship still stuck across Suez Canal, but Egyptian official says it will be freed over weekend - CBS News**
+#### Sat, 27 Mar 2021 11:40:11 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQ2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3Mvc3Vlei1jYW5hbC1zaGlwLXN0dWNrLWJsb2NrLWV2ZXJncmVlbi_SAUdodHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbmV3cy9zdWV6LWNhbmFsLXNoaXAtc3R1Y2stYmxvY2stZXZlcmdyZWVuLw?oc=5)
+---
