@@ -245,3 +245,6 @@
 ### **Cargo ship remains stuck in Suez Canal for fifth day after effort to free it failed - CBS News**
 #### Sun, 28 Mar 2021 11:21:19 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3Mvc3Vlei1jYW5hbC1zaGlwLXN0dWNrLWJsb2NrLWZpZnRoLWRheS1lZmZvcnQv0gFOaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3Mvc3Vlei1jYW5hbC1zaGlwLXN0dWNrLWJsb2NrLWZpZnRoLWRheS1lZmZvcnQv?oc=5)
 ---
+### **Ship carrying sex toys among hundreds of blocked vessels in Suez Canal - New York Post **
+#### Mon, 29 Mar 2021 10:38:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzAzLzI5L3NoaXAtY2Fycnlpbmctc2V4LXRveXMtYW1vbmctYmxvY2tlZC12ZXNzZWxzLWluLXN1ZXotY2FuYWwv0gFdaHR0cHM6Ly9ueXBvc3QuY29tLzIwMjEvMDMvMjkvc2hpcC1jYXJyeWluZy1zZXgtdG95cy1hbW9uZy1ibG9ja2VkLXZlc3NlbHMtaW4tc3Vlei1jYW5hbC9hbXAv?oc=5)
+---
