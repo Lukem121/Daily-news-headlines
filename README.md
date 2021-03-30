@@ -248,3 +248,6 @@
 ### **Ship carrying sex toys among hundreds of blocked vessels in Suez Canal - New York Post **
 #### Mon, 29 Mar 2021 10:38:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzAzLzI5L3NoaXAtY2Fycnlpbmctc2V4LXRveXMtYW1vbmctYmxvY2tlZC12ZXNzZWxzLWluLXN1ZXotY2FuYWwv0gFdaHR0cHM6Ly9ueXBvc3QuY29tLzIwMjEvMDMvMjkvc2hpcC1jYXJyeWluZy1zZXgtdG95cy1hbW9uZy1ibG9ja2VkLXZlc3NlbHMtaW4tc3Vlei1jYW5hbC9hbXAv?oc=5)
 ---
+### **Derek Chauvin trial live: MMA fighter who asked officers to stop 'blood choke' on George Floyd will testify again - USA TODAY**
+#### Tue, 30 Mar 2021 10:51:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihwFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9uYXRpb24vMjAyMS8wMy8zMC9kZXJlay1jaGF1dmluLXRyaWFsLWxpdmUtdHVlc2RheS13aXRuZXNzZXMtdGFrZS1zdGFuZC1kb25hbGQtd2lsbGlhbXMvNzAxODcyMDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzcwMTg3MjAwMDI?oc=5)
+---
