@@ -251,3 +251,6 @@
 ### **Derek Chauvin trial live: MMA fighter who asked officers to stop 'blood choke' on George Floyd will testify again - USA TODAY**
 #### Tue, 30 Mar 2021 10:51:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihwFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9uYXRpb24vMjAyMS8wMy8zMC9kZXJlay1jaGF1dmluLXRyaWFsLWxpdmUtdHVlc2RheS13aXRuZXNzZXMtdGFrZS1zdGFuZC1kb25hbGQtd2lsbGlhbXMvNzAxODcyMDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzcwMTg3MjAwMDI?oc=5)
 ---
+### **Biden to propose $2 trillion infrastructure, jobs plan funded by corporate tax hike - USA TODAY**
+#### Wed, 31 Mar 2021 09:01:38 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzAzLzMxL3ByZXNpZGVudC1qb2UtYmlkZW4tcHJvcG9zZXMtMi10cmlsbGlvbi1pbmZyYXN0cnVjdHVyZS1qb2JzLXBsYW4vNDgwOTI5MDAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzQ4MDkyOTAwMDE?oc=5)
+---
