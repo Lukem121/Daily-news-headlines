@@ -254,3 +254,6 @@
 ### **Biden to propose $2 trillion infrastructure, jobs plan funded by corporate tax hike - USA TODAY**
 #### Wed, 31 Mar 2021 09:01:38 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzAzLzMxL3ByZXNpZGVudC1qb2UtYmlkZW4tcHJvcG9zZXMtMi10cmlsbGlvbi1pbmZyYXN0cnVjdHVyZS1qb2JzLXBsYW4vNDgwOTI5MDAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzQ4MDkyOTAwMDE?oc=5)
 ---
+### **Derek Chauvin trial live: Body-camera video shows Chauvin's reaction to George Floyd encounter - USA TODAY**
+#### Thu, 01 Apr 2021 11:07:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL25hdGlvbi8yMDIxLzA0LzAxL2NoYXV2aW4tdHJpYWwtbGl2ZS1kYXktNC1ib2R5LWNhbWVyYS12aWRlby1nZW9yZ2UtZmxveWQvNzAxOTIwNDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzcwMTkyMDQwMDI?oc=5)
+---
