@@ -260,3 +260,6 @@
 ### **Taiwan’s worst train crash in decades leaves 51 dead, dozens injured - The Washington Post**
 #### Fri, 02 Apr 2021 12:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiQFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vd29ybGQvYXNpYV9wYWNpZmljL3RhaXdhbi10cmFpbi1jcmFzaC1kZWFkbGllc3QvMjAyMS8wNC8wMi85NTFiY2Q1Yy05Mzg2LTExZWItOWFmNy1mZDA4MjJhZTQzOThfc3RvcnkuaHRtbNIBmAFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vd29ybGQvYXNpYV9wYWNpZmljL3RhaXdhbi10cmFpbi1jcmFzaC1kZWFkbGllc3QvMjAyMS8wNC8wMi85NTFiY2Q1Yy05Mzg2LTExZWItOWFmNy1mZDA4MjJhZTQzOThfc3RvcnkuaHRtbD9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **1 officer killed, 1 injured in car ramming attack at street barricade outside U.S. Capitol - CBS News**
+#### Sat, 03 Apr 2021 11:48:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvdXMtY2FwaXRvbC1wb2xpY2Utb2ZmaWNlci1raWxsZWQtYXR0YWNrLWNhci1yYW1taW5nLWJhcnJpY2FkZS_SAV9odHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbmV3cy91cy1jYXBpdG9sLXBvbGljZS1vZmZpY2VyLWtpbGxlZC1hdHRhY2stY2FyLXJhbW1pbmctYmFycmljYWRlLw?oc=5)
+---
