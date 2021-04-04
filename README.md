@@ -263,3 +263,6 @@
 ### **1 officer killed, 1 injured in car ramming attack at street barricade outside U.S. Capitol - CBS News**
 #### Sat, 03 Apr 2021 11:48:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvdXMtY2FwaXRvbC1wb2xpY2Utb2ZmaWNlci1raWxsZWQtYXR0YWNrLWNhci1yYW1taW5nLWJhcnJpY2FkZS_SAV9odHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbmV3cy91cy1jYXBpdG9sLXBvbGljZS1vZmZpY2VyLWtpbGxlZC1hdHRhY2stY2FyLXJhbW1pbmctYmFycmljYWRlLw?oc=5)
 ---
+### **All eyes are on Georgia. Again. - POLITICO - POLITICO**
+#### Sun, 04 Apr 2021 11:00:56 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDQvMDQvZ2VvcmdpYS12b3RpbmctbGF3LTQ3OTAwMtIBRmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzA0LzA0L2dlb3JnaWEtdm90aW5nLWxhdy00NzkwMDI?oc=5)
+---
