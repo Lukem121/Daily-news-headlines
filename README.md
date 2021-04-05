@@ -266,3 +266,6 @@
 ### **All eyes are on Georgia. Again. - POLITICO - POLITICO**
 #### Sun, 04 Apr 2021 11:00:56 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDQvMDQvZ2VvcmdpYS12b3RpbmctbGF3LTQ3OTAwMtIBRmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzA0LzA0L2dlb3JnaWEtdm90aW5nLWxhdy00NzkwMDI?oc=5)
 ---
+### **Time back home with voters only emboldens Republicans to oppose Biden’s agenda - The Washington Post**
+#### Mon, 05 Apr 2021 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiAFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vcG9saXRpY3MvZ29wLWF0dGFja3MtYmlkZW4taW5mcmFzdHJ1Y3R1cmUtZGVidC8yMDIxLzA0LzA0LzMyMWFkMDVhLTkzYjctMTFlYi1hNzRlLTFmNGNmODlmZDk0OF9zdG9yeS5odG1s0gGXAWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy9nb3AtYXR0YWNrcy1iaWRlbi1pbmZyYXN0cnVjdHVyZS1kZWJ0LzIwMjEvMDQvMDQvMzIxYWQwNWEtOTNiNy0xMWViLWE3NGUtMWY0Y2Y4OWZkOTQ4X3N0b3J5Lmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
