@@ -269,3 +269,6 @@
 ### **Time back home with voters only emboldens Republicans to oppose Biden’s agenda - The Washington Post**
 #### Mon, 05 Apr 2021 09:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiAFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vcG9saXRpY3MvZ29wLWF0dGFja3MtYmlkZW4taW5mcmFzdHJ1Y3R1cmUtZGVidC8yMDIxLzA0LzA0LzMyMWFkMDVhLTkzYjctMTFlYi1hNzRlLTFmNGNmODlmZDk0OF9zdG9yeS5odG1s0gGXAWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9wb2xpdGljcy9nb3AtYXR0YWNrcy1iaWRlbi1pbmZyYXN0cnVjdHVyZS1kZWJ0LzIwMjEvMDQvMDQvMzIxYWQwNWEtOTNiNy0xMWViLWE3NGUtMWY0Y2Y4OWZkOTQ4X3N0b3J5Lmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
 ---
+### **Mitch McConnell Reminded of Citizens United Backing After Warning to CEOs - Newsweek**
+#### Tue, 06 Apr 2021 07:42:19 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9taXRjaC1tY2Nvbm5lbGwtY2l0aXplbnMtdW5pdGVkLWNlby13YXJuaW5nLTE1ODExNzTSAVJodHRwczovL3d3dy5uZXdzd2Vlay5jb20vbWl0Y2gtbWNjb25uZWxsLWNpdGl6ZW5zLXVuaXRlZC1jZW8td2FybmluZy0xNTgxMTc0P2FtcD0x?oc=5)
+---
