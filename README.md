@@ -272,3 +272,6 @@
 ### **Mitch McConnell Reminded of Citizens United Backing After Warning to CEOs - Newsweek**
 #### Tue, 06 Apr 2021 07:42:19 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9taXRjaC1tY2Nvbm5lbGwtY2l0aXplbnMtdW5pdGVkLWNlby13YXJuaW5nLTE1ODExNzTSAVJodHRwczovL3d3dy5uZXdzd2Vlay5jb20vbWl0Y2gtbWNjb25uZWxsLWNpdGl6ZW5zLXVuaXRlZC1jZW8td2FybmluZy0xNTgxMTc0P2FtcD0x?oc=5)
 ---
+### **Fact Check: Georgia Vs. Colorado On Mail-In Voting, IDs, Lines - NPR**
+#### Wed, 07 Apr 2021 09:00:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNC8wNy85ODQ4NTc1NjIvZmFjdC1jaGVjay1ob3ctY29sb3JhZG8tZ2VvcmdpYS12b3RpbmctbGF3cy1kaWZmZXItZGVzcGl0ZS1jb25zZXJ2YXRpdmVzLWNsYWltc9IBAA?oc=5)
+---
