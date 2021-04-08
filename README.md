@@ -275,3 +275,6 @@
 ### **Fact Check: Georgia Vs. Colorado On Mail-In Voting, IDs, Lines - NPR**
 #### Wed, 07 Apr 2021 09:00:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNC8wNy85ODQ4NTc1NjIvZmFjdC1jaGVjay1ob3ctY29sb3JhZG8tZ2VvcmdpYS12b3RpbmctbGF3cy1kaWZmZXItZGVzcGl0ZS1jb25zZXJ2YXRpdmVzLWNsYWltc9IBAA?oc=5)
 ---
+### **Doctor, two grandchildren among five killed in shooting at York County, S.C. home - WBTV**
+#### Thu, 08 Apr 2021 10:18:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LndidHYuY29tLzIwMjEvMDQvMDgvZml2ZS1raWxsZWQtaW5jbHVkaW5nLXR3by1jaGlsZHJlbi1zaG9vdGluZy15b3JrLWNvdW50eS1ob21lL9IBbGh0dHBzOi8vd3d3LndidHYuY29tLzIwMjEvMDQvMDgvZml2ZS1raWxsZWQtaW5jbHVkaW5nLXR3by1jaGlsZHJlbi1zaG9vdGluZy15b3JrLWNvdW50eS1ob21lLz9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
