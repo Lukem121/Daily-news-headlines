@@ -278,3 +278,6 @@
 ### **Doctor, two grandchildren among five killed in shooting at York County, S.C. home - WBTV**
 #### Thu, 08 Apr 2021 10:18:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LndidHYuY29tLzIwMjEvMDQvMDgvZml2ZS1raWxsZWQtaW5jbHVkaW5nLXR3by1jaGlsZHJlbi1zaG9vdGluZy15b3JrLWNvdW50eS1ob21lL9IBbGh0dHBzOi8vd3d3LndidHYuY29tLzIwMjEvMDQvMDgvZml2ZS1raWxsZWQtaW5jbHVkaW5nLXR3by1jaGlsZHJlbi1zaG9vdGluZy15b3JrLWNvdW50eS1ob21lLz9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **Prince Philip, husband of Queen Elizabeth II, dies aged 99 - WCAX**
+#### Fri, 09 Apr 2021 11:08:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiPmh0dHBzOi8vd3d3LndjYXguY29tLzIwMjEvMDQvMDkvcHJpbmNlLXBoaWxsaXAtZGllcy1hdC1hZ2UtOTkv0gEA?oc=5)
+---
