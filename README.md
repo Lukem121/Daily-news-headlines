@@ -284,3 +284,6 @@
 ### **Michigan’s Virus Cases Are Out of Control, Putting Gov. Gretchen Whitmer in a Bind - The New York Times**
 #### Sat, 10 Apr 2021 09:00:17 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMTAvdXMvY29yb25hdmlydXMtbWljaGlnYW4tZ3JldGNoZW4td2hpdG1lci5odG1s0gFUaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wNC8xMC91cy9jb3JvbmF2aXJ1cy1taWNoaWdhbi1ncmV0Y2hlbi13aGl0bWVyLmFtcC5odG1s?oc=5)
 ---
+### **3 Children Stabbed To Death In Reseda Apartment; Mother Captured In Central California After Going On The Run - CBS Los Angeles**
+#### Sun, 11 Apr 2021 04:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL2xvc2FuZ2VsZXMuY2JzbG9jYWwuY29tLzIwMjEvMDQvMTAvMy1jaGlsZHJlbi1zdGFiYmVkLXRvLWRlYXRoLWluLXJlc2VkYS1hcGFydG1lbnQtbW90aGVyLWxpbGlhbmEtY2FycmlsbG8tY2FwdHVyZWQtY2VudHJhbC1jYWxpZm9ybmlhL9IBkwFodHRwczovL2xvc2FuZ2VsZXMuY2JzbG9jYWwuY29tLzIwMjEvMDQvMTAvMy1jaGlsZHJlbi1zdGFiYmVkLXRvLWRlYXRoLWluLXJlc2VkYS1hcGFydG1lbnQtbW90aGVyLWxpbGlhbmEtY2FycmlsbG8tY2FwdHVyZWQtY2VudHJhbC1jYWxpZm9ybmlhL2FtcC8?oc=5)
+---
