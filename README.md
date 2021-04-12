@@ -287,3 +287,6 @@
 ### **3 Children Stabbed To Death In Reseda Apartment; Mother Captured In Central California After Going On The Run - CBS Los Angeles**
 #### Sun, 11 Apr 2021 04:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL2xvc2FuZ2VsZXMuY2JzbG9jYWwuY29tLzIwMjEvMDQvMTAvMy1jaGlsZHJlbi1zdGFiYmVkLXRvLWRlYXRoLWluLXJlc2VkYS1hcGFydG1lbnQtbW90aGVyLWxpbGlhbmEtY2FycmlsbG8tY2FwdHVyZWQtY2VudHJhbC1jYWxpZm9ybmlhL9IBkwFodHRwczovL2xvc2FuZ2VsZXMuY2JzbG9jYWwuY29tLzIwMjEvMDQvMTAvMy1jaGlsZHJlbi1zdGFiYmVkLXRvLWRlYXRoLWluLXJlc2VkYS1hcGFydG1lbnQtbW90aGVyLWxpbGlhbmEtY2FycmlsbG8tY2FwdHVyZWQtY2VudHJhbC1jYWxpZm9ybmlhL2FtcC8?oc=5)
 ---
+### **Protests erupt in Minneapolis suburb after police fatally shoot Daunte Wright following traffic stop - CBS News**
+#### Mon, 12 Apr 2021 13:13:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9kdWFuZS13cmlnaHQta2lsbGVkLXBvbGljZS1icm9va2x5bi1jZW50ZXItbWlubmVzb3RhLXByb3Rlc3RzL9IBZ2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9saXZlLXVwZGF0ZXMvZHVhbmUtd3JpZ2h0LWtpbGxlZC1wb2xpY2UtYnJvb2tseW4tY2VudGVyLW1pbm5lc290YS1wcm90ZXN0cy8?oc=5)
+---
