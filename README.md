@@ -290,3 +290,6 @@
 ### **Protests erupt in Minneapolis suburb after police fatally shoot Daunte Wright following traffic stop - CBS News**
 #### Mon, 12 Apr 2021 13:13:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9kdWFuZS13cmlnaHQta2lsbGVkLXBvbGljZS1icm9va2x5bi1jZW50ZXItbWlubmVzb3RhLXByb3Rlc3RzL9IBZ2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9saXZlLXVwZGF0ZXMvZHVhbmUtd3JpZ2h0LWtpbGxlZC1wb2xpY2UtYnJvb2tseW4tY2VudGVyLW1pbm5lc290YS1wcm90ZXN0cy8?oc=5)
 ---
+### **Don't 'overinterpret' decision to pause J&J Covid vaccine over rare clotting issue, Dr. Scott Gottlieb says - CNBC**
+#### Tue, 13 Apr 2021 12:45:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDQvMTMvc2NvdHQtZ290dGxpZWItY2F1dGlvbnMtYWdhaW5zdC1vdmVycmVhY3Rpb24tdG8tam9obnNvbi1qb2huc29uLWNvdmlkLXZhY2NpbmUtcGF1c2UuaHRtbNIBfGh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA0LzEzL3Njb3R0LWdvdHRsaWViLWNhdXRpb25zLWFnYWluc3Qtb3ZlcnJlYWN0aW9uLXRvLWpvaG5zb24tam9obnNvbi1jb3ZpZC12YWNjaW5lLXBhdXNlLmh0bWw?oc=5)
+---
