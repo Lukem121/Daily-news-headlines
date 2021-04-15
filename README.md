@@ -296,3 +296,6 @@
 ### **Decision expected on charging Kim Potter, the cop who killed Daunte Wright - CBS News**
 #### Wed, 14 Apr 2021 11:12:13 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9kYXVudGUtd3JpZ2h0LWtpbGxlZC1wb2xpY2UtYnJvb2tseW4tY2VudGVyLW1pbm5lc290YS0wNC0xMy0yMDIxL9IBamh0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9saXZlLXVwZGF0ZXMvZGF1bnRlLXdyaWdodC1raWxsZWQtcG9saWNlLWJyb29rbHluLWNlbnRlci1taW5uZXNvdGEtMDQtMTMtMjAyMS8?oc=5)
 ---
+### **4th night of protests after ex-cop who killed Daunte Wright charged - CBS News**
+#### Thu, 15 Apr 2021 11:12:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9kYXVudGUtd3JpZ2h0LWtpbGxpbmctbWlubmVzb3RhLWtpbS1wb3R0ZXItcHJvdGVzdC1icm9va2x5bi1jZW50ZXIv0gFsaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL2xpdmUtdXBkYXRlcy9kYXVudGUtd3JpZ2h0LWtpbGxpbmctbWlubmVzb3RhLWtpbS1wb3R0ZXItcHJvdGVzdC1icm9va2x5bi1jZW50ZXIv?oc=5)
+---
