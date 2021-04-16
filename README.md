@@ -299,3 +299,6 @@
 ### **4th night of protests after ex-cop who killed Daunte Wright charged - CBS News**
 #### Thu, 15 Apr 2021 11:12:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9kYXVudGUtd3JpZ2h0LWtpbGxpbmctbWlubmVzb3RhLWtpbS1wb3R0ZXItcHJvdGVzdC1icm9va2x5bi1jZW50ZXIv0gFsaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL2xpdmUtdXBkYXRlcy9kYXVudGUtd3JpZ2h0LWtpbGxpbmctbWlubmVzb3RhLWtpbS1wb3R0ZXItcHJvdGVzdC1icm9va2x5bi1jZW50ZXIv?oc=5)
 ---
+### **Live updates: Gunman kills 8 at FedEx facility before apparently shooting himself, Indianapolis police say - The Washington Post**
+#### Fri, 16 Apr 2021 13:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8xNi9pbmRpYW5hcG9saXMtZmVkZXgtc2hvb3RpbmctYWlycG9ydC_SAWRodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uLzIwMjEvMDQvMTYvaW5kaWFuYXBvbGlzLWZlZGV4LXNob290aW5nLWFpcnBvcnQvP291dHB1dFR5cGU9YW1w?oc=5)
+---
