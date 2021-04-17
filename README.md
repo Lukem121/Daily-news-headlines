@@ -302,3 +302,6 @@
 ### **Live updates: Gunman kills 8 at FedEx facility before apparently shooting himself, Indianapolis police say - The Washington Post**
 #### Fri, 16 Apr 2021 13:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8xNi9pbmRpYW5hcG9saXMtZmVkZXgtc2hvb3RpbmctYWlycG9ydC_SAWRodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uLzIwMjEvMDQvMTYvaW5kaWFuYXBvbGlzLWZlZGV4LXNob290aW5nLWFpcnBvcnQvP291dHB1dFR5cGU9YW1w?oc=5)
 ---
+### **FBI says it interviewed FedEx mass shooter last year - POLITICO**
+#### Sat, 17 Apr 2021 12:06:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDQvMTcvZmVkZXgtc2hvb3RpbmctaW5kaWFuYXBvbGlzLTQ4MjY1MNIBAA?oc=5)
+---
