@@ -305,3 +305,6 @@
 ### **FBI says it interviewed FedEx mass shooter last year - POLITICO**
 #### Sat, 17 Apr 2021 12:06:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDQvMTcvZmVkZXgtc2hvb3RpbmctaW5kaWFuYXBvbGlzLTQ4MjY1MNIBAA?oc=5)
 ---
+### **Indianapolis mass shooting suspect legally bought 2 guns, police say - Axios**
+#### Sun, 18 Apr 2021 04:08:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3LmF4aW9zLmNvbS9pbmRpYW5hcG9saXMtc2hvb3Rpbmctc3VzcGVjdC1sZWdhbGx5LWJvdWdodC1ndW5zLXBvbGljZS01NTU1NzY3NS1kMGE1LTRiMWYtYmNhYy0xNGY1MmU2MTc2MzEuaHRtbNIBeGh0dHBzOi8vd3d3LmF4aW9zLmNvbS9pbmRpYW5hcG9saXMtc2hvb3Rpbmctc3VzcGVjdC1sZWdhbGx5LWJvdWdodC1ndW5zLXBvbGljZS01NTU1NzY3NS1kMGE1LTRiMWYtYmNhYy0xNGY1MmU2MTc2MzEuaHRtbA?oc=5)
+---
