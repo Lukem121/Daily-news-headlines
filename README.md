@@ -308,3 +308,6 @@
 ### **Indianapolis mass shooting suspect legally bought 2 guns, police say - Axios**
 #### Sun, 18 Apr 2021 04:08:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3LmF4aW9zLmNvbS9pbmRpYW5hcG9saXMtc2hvb3Rpbmctc3VzcGVjdC1sZWdhbGx5LWJvdWdodC1ndW5zLXBvbGljZS01NTU1NzY3NS1kMGE1LTRiMWYtYmNhYy0xNGY1MmU2MTc2MzEuaHRtbNIBeGh0dHBzOi8vd3d3LmF4aW9zLmNvbS9pbmRpYW5hcG9saXMtc2hvb3Rpbmctc3VzcGVjdC1sZWdhbGx5LWJvdWdodC1ndW5zLXBvbGljZS01NTU1NzY3NS1kMGE1LTRiMWYtYmNhYy0xNGY1MmU2MTc2MzEuaHRtbA?oc=5)
 ---
+### **Manhunt underway in Austin, Texas, after 3 killed in shooting - CBS News**
+#### Mon, 19 Apr 2021 10:51:56 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9hdXN0aW4tc2hvb3RpbmctbWFuaHVudC10ZXhhcy0zLWtpbGxlZC_SAVBodHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbGl2ZS11cGRhdGVzL2F1c3Rpbi1zaG9vdGluZy1tYW5odW50LXRleGFzLTMta2lsbGVkLw?oc=5)
+---
