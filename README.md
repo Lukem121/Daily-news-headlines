@@ -311,3 +311,6 @@
 ### **Manhunt underway in Austin, Texas, after 3 killed in shooting - CBS News**
 #### Mon, 19 Apr 2021 10:51:56 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNic25ld3MuY29tL2xpdmUtdXBkYXRlcy9hdXN0aW4tc2hvb3RpbmctbWFuaHVudC10ZXhhcy0zLWtpbGxlZC_SAVBodHRwczovL3d3dy5jYnNuZXdzLmNvbS9hbXAvbGl2ZS11cGRhdGVzL2F1c3Rpbi1zaG9vdGluZy1tYW5odW50LXRleGFzLTMta2lsbGVkLw?oc=5)
 ---
+### **Chauvin judge admonishes Rep. Maxine Waters after she said protesters should get ‘confrontational’ if verdict is not guilty - The Washington Post**
+#### Tue, 20 Apr 2021 12:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8xOS9tYXhpbmUtd2F0ZXJzLWp1ZGdlLWNhaGlsbC1jaGF1dmluL9IBY2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8xOS9tYXhpbmUtd2F0ZXJzLWp1ZGdlLWNhaGlsbC1jaGF1dmluLz9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
