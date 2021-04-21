@@ -314,3 +314,6 @@
 ### **Chauvin judge admonishes Rep. Maxine Waters after she said protesters should get ‘confrontational’ if verdict is not guilty - The Washington Post**
 #### Tue, 20 Apr 2021 12:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8xOS9tYXhpbmUtd2F0ZXJzLWp1ZGdlLWNhaGlsbC1jaGF1dmluL9IBY2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8xOS9tYXhpbmUtd2F0ZXJzLWp1ZGdlLWNhaGlsbC1jaGF1dmluLz9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **Tucker Carlson says protests intimidated Derek Chauvin jury into guilty verdict: ‘Please don’t hurt us’ - The Washington Post**
+#### Wed, 21 Apr 2021 08:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8yMS90dWNrZXItY2FybHNvbi1jaGF1dmluLWZsb3lkLWd1aWx0eS1qdXJ5L9IBaWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8yMS90dWNrZXItY2FybHNvbi1jaGF1dmluLWZsb3lkLWd1aWx0eS1qdXJ5Lz9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
