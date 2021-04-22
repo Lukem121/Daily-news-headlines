@@ -317,3 +317,6 @@
 ### **Tucker Carlson says protests intimidated Derek Chauvin jury into guilty verdict: ‘Please don’t hurt us’ - The Washington Post**
 #### Wed, 21 Apr 2021 08:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8yMS90dWNrZXItY2FybHNvbi1jaGF1dmluLWZsb3lkLWd1aWx0eS1qdXJ5L9IBaWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNC8yMS90dWNrZXItY2FybHNvbi1jaGF1dmluLWZsb3lkLWd1aWx0eS1qdXJ5Lz9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **Biden pledges to slash greenhouse gas emissions in half by 2030 - CNBC**
+#### Thu, 22 Apr 2021 10:00:01 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDQvMjIvYmlkZW4tcGxlZGdlcy10by1zbGFzaC1ncmVlbmhvdXNlLWdhcy1lbWlzc2lvbnMtaW4taGFsZi1ieS0yMDMwLmh0bWzSAWhodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNC8yMi9iaWRlbi1wbGVkZ2VzLXRvLXNsYXNoLWdyZWVuaG91c2UtZ2FzLWVtaXNzaW9ucy1pbi1oYWxmLWJ5LTIwMzAuaHRtbA?oc=5)
+---
