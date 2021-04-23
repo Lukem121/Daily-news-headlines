@@ -320,3 +320,6 @@
 ### **Biden pledges to slash greenhouse gas emissions in half by 2030 - CNBC**
 #### Thu, 22 Apr 2021 10:00:01 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDQvMjIvYmlkZW4tcGxlZGdlcy10by1zbGFzaC1ncmVlbmhvdXNlLWdhcy1lbWlzc2lvbnMtaW4taGFsZi1ieS0yMDMwLmh0bWzSAWhodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNC8yMi9iaWRlbi1wbGVkZ2VzLXRvLXNsYXNoLWdyZWVuaG91c2UtZ2FzLWVtaXNzaW9ucy1pbi1oYWxmLWJ5LTIwMzAuaHRtbA?oc=5)
 ---
+### **Patients and hospitals beg for help as a catastrophic second wave batters India. - The New York Times**
+#### Fri, 23 Apr 2021 09:02:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMjMvd29ybGQvcGF0aWVudHMtYW5kLWhvc3BpdGFscy1iZWctZm9yLWhlbHAtYXMtYS1jYXRhc3Ryb3BoaWMtc2Vjb25kLXdhdmUtYmF0dGVycy1pbmRpYS5odG1s0gGBAWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMjMvd29ybGQvcGF0aWVudHMtYW5kLWhvc3BpdGFscy1iZWctZm9yLWhlbHAtYXMtYS1jYXRhc3Ryb3BoaWMtc2Vjb25kLXdhdmUtYmF0dGVycy1pbmRpYS5hbXAuaHRtbA?oc=5)
+---
