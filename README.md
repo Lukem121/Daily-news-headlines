@@ -323,3 +323,6 @@
 ### **Patients and hospitals beg for help as a catastrophic second wave batters India. - The New York Times**
 #### Fri, 23 Apr 2021 09:02:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMifWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMjMvd29ybGQvcGF0aWVudHMtYW5kLWhvc3BpdGFscy1iZWctZm9yLWhlbHAtYXMtYS1jYXRhc3Ryb3BoaWMtc2Vjb25kLXdhdmUtYmF0dGVycy1pbmRpYS5odG1s0gGBAWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMjMvd29ybGQvcGF0aWVudHMtYW5kLWhvc3BpdGFscy1iZWctZm9yLWhlbHAtYXMtYS1jYXRhc3Ryb3BoaWMtc2Vjb25kLXdhdmUtYmF0dGVycy1pbmRpYS5hbXAuaHRtbA?oc=5)
 ---
+### **Indonesian submarine: 53 sailors presumed dead as navy says vessel sunk - NBC News**
+#### Sat, 24 Apr 2021 12:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvaW5kb25lc2lhbi1zdWJtYXJpbmUtNTMtc2FpbG9ycy1wcmVzdW1lZC1kZWFkLW5hdnktc2F5cy12ZXNzZWwtc3Vuay1uMTI2NTE3OdIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjY1MTc5?oc=5)
+---
