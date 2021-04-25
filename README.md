@@ -326,3 +326,6 @@
 ### **Indonesian submarine: 53 sailors presumed dead as navy says vessel sunk - NBC News**
 #### Sat, 24 Apr 2021 12:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvaW5kb25lc2lhbi1zdWJtYXJpbmUtNTMtc2FpbG9ycy1wcmVzdW1lZC1kZWFkLW5hdnktc2F5cy12ZXNzZWwtc3Vuay1uMTI2NTE3OdIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjY1MTc5?oc=5)
 ---
+### **Armenians Celebrate Biden's Genocide Declaration as Furious Turkey Summons US Ambassador - Newsweek**
+#### Sun, 25 Apr 2021 02:29:39 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9hcm1lbmlhbnMtY2VsZWJyYXRlLWJpZGVucy1nZW5vY2lkZS1kZWNsYXJhdGlvbi1mdXJpb3VzLXR1cmtleS1zdW1tb25zLXVzLWFtYmFzc2Fkb3ItMTU4NjIzMtIBe2h0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9hcm1lbmlhbnMtY2VsZWJyYXRlLWJpZGVucy1nZW5vY2lkZS1kZWNsYXJhdGlvbi1mdXJpb3VzLXR1cmtleS1zdW1tb25zLXVzLWFtYmFzc2Fkb3ItMTU4NjIzMj9hbXA9MQ?oc=5)
+---
