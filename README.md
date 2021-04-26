@@ -329,3 +329,6 @@
 ### **Armenians Celebrate Biden's Genocide Declaration as Furious Turkey Summons US Ambassador - Newsweek**
 #### Sun, 25 Apr 2021 02:29:39 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9hcm1lbmlhbnMtY2VsZWJyYXRlLWJpZGVucy1nZW5vY2lkZS1kZWNsYXJhdGlvbi1mdXJpb3VzLXR1cmtleS1zdW1tb25zLXVzLWFtYmFzc2Fkb3ItMTU4NjIzMtIBe2h0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9hcm1lbmlhbnMtY2VsZWJyYXRlLWJpZGVucy1nZW5vY2lkZS1kZWNsYXJhdGlvbi1mdXJpb3VzLXR1cmtleS1zdW1tb25zLXVzLWFtYmFzc2Fkb3ItMTU4NjIzMj9hbXA9MQ?oc=5)
 ---
+### **Status Of Biden's Promises After 100 Days In Office - NPR**
+#### Mon, 26 Apr 2021 09:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNC8yNi85OTAzMDU1OTMvMTAwLWRheXMtaG93LWJpZGVuLWhhcy1mYXJlZC1zby1mYXItb24taGlzLXByb21pc2Vz0gEA?oc=5)
+---
