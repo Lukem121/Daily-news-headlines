@@ -332,3 +332,6 @@
 ### **Status Of Biden's Promises After 100 Days In Office - NPR**
 #### Mon, 26 Apr 2021 09:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNC8yNi85OTAzMDU1OTMvMTAwLWRheXMtaG93LWJpZGVuLWhhcy1mYXJlZC1zby1mYXItb24taGlzLXByb21pc2Vz0gEA?oc=5)
 ---
+### **How Barack Obama's eight years shaped Joe Biden's first 100 days - NBC News**
+#### Tue, 27 Apr 2021 08:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2pvZS1iaWRlbi9ob3ctYmFyYWNrLW9iYW1hLXMtZWlnaHQteWVhcnMtc2hhcGVkLWpvZS1iaWRlbi1zLW4xMjY0ODcw0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjQ4NzA?oc=5)
+---
