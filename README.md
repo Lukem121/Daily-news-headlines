@@ -335,3 +335,6 @@
 ### **How Barack Obama's eight years shaped Joe Biden's first 100 days - NBC News**
 #### Tue, 27 Apr 2021 08:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2pvZS1iaWRlbi9ob3ctYmFyYWNrLW9iYW1hLXMtZWlnaHQteWVhcnMtc2hhcGVkLWpvZS1iaWRlbi1zLW4xMjY0ODcw0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjQ4NzA?oc=5)
 ---
+### **Biden to propose $1.8 trillion 'families plan' with paid leave, child care, universal pre-K, free community college - USA TODAY**
+#### Wed, 28 Apr 2021 09:01:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzA0LzI4L3ByZXNpZGVudC1qb2UtYmlkZW4tcHJvcG9zZS1hbWVyaWNhbi1mYW1pbGllcy1wbGFuLXBhaWQtbGVhdmUvNDg1MjY3OTAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzQ4NTI2NzkwMDE?oc=5)
+---
