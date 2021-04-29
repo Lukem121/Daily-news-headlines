@@ -338,3 +338,6 @@
 ### **Biden to propose $1.8 trillion 'families plan' with paid leave, child care, universal pre-K, free community college - USA TODAY**
 #### Wed, 28 Apr 2021 09:01:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzA0LzI4L3ByZXNpZGVudC1qb2UtYmlkZW4tcHJvcG9zZS1hbWVyaWNhbi1mYW1pbGllcy1wbGFuLXBhaWQtbGVhdmUvNDg1MjY3OTAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzQ4NTI2NzkwMDE?oc=5)
 ---
+### **In G.O.P. Rebuttal, Tim Scott Accuses Biden of Pulling Nation ‘Further Apart’ - The New York Times**
+#### Thu, 29 Apr 2021 12:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQ2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMjgvdXMvcG9saXRpY3MvdGltLXNjb3R0LWJpZGVuLmh0bWzSAUdodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIxLzA0LzI4L3VzL3BvbGl0aWNzL3RpbS1zY290dC1iaWRlbi5hbXAuaHRtbA?oc=5)
+---
