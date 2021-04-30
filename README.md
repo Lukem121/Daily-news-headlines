@@ -341,3 +341,6 @@
 ### **In G.O.P. Rebuttal, Tim Scott Accuses Biden of Pulling Nation ‘Further Apart’ - The New York Times**
 #### Thu, 29 Apr 2021 12:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQ2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDQvMjgvdXMvcG9saXRpY3MvdGltLXNjb3R0LWJpZGVuLmh0bWzSAUdodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIxLzA0LzI4L3VzL3BvbGl0aWNzL3RpbS1zY290dC1iaWRlbi5hbXAuaHRtbA?oc=5)
 ---
+### **Biden lays border crisis on Trump admin's refusal to cooperate - NBC News**
+#### Fri, 30 Apr 2021 13:08:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL3doaXRlLWhvdXNlL29uZS1nb2QtYXdmdWwtbWVzcy1iaWRlbi1sYXlzLWJvcmRlci1jcmlzaXMtdHJ1bXAtYWRtaW4tbjEyNjU5MDjSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI2NTkwOA?oc=5)
+---
