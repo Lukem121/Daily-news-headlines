@@ -344,3 +344,6 @@
 ### **Biden lays border crisis on Trump admin's refusal to cooperate - NBC News**
 #### Fri, 30 Apr 2021 13:08:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL3doaXRlLWhvdXNlL29uZS1nb2QtYXdmdWwtbWVzcy1iaWRlbi1sYXlzLWJvcmRlci1jcmlzaXMtdHJ1bXAtYWRtaW4tbjEyNjU5MDjSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI2NTkwOA?oc=5)
 ---
+### **'Woke liberal' Jimmy Kimmel slammed for attacking Tim Scott as token Black Republican - Fox News**
+#### Fri, 30 Apr 2021 18:35:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2ppbW15LWtpbW1lbC10aW0tc2NvdHQtdG9rZW4tYmxhY2stcmVwdWJsaWNhbtIBT2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2ppbW15LWtpbW1lbC10aW0tc2NvdHQtdG9rZW4tYmxhY2stcmVwdWJsaWNhbi5hbXA?oc=5)
+---
