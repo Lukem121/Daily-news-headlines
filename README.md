@@ -347,3 +347,6 @@
 ### **'Woke liberal' Jimmy Kimmel slammed for attacking Tim Scott as token Black Republican - Fox News**
 #### Fri, 30 Apr 2021 18:35:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2ppbW15LWtpbW1lbC10aW0tc2NvdHQtdG9rZW4tYmxhY2stcmVwdWJsaWNhbtIBT2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2ppbW15LWtpbW1lbC10aW0tc2NvdHQtdG9rZW4tYmxhY2stcmVwdWJsaWNhbi5hbXA?oc=5)
 ---
+### **Susan Wright advances to runoff in Texas' 6th District special election with tight race for second spot - CNN **
+#### Sun, 02 May 2021 04:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNS8wMi9wb2xpdGljcy90ZXhhcy02dGgtZGlzdHJpY3Qtc3BlY2lhbC1lbGVjdGlvbi9pbmRleC5odG1s0gFaaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNS8wMi9wb2xpdGljcy90ZXhhcy02dGgtZGlzdHJpY3Qtc3BlY2lhbC1lbGVjdGlvbi9pbmRleC5odG1s?oc=5)
+---
