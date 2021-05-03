@@ -350,3 +350,6 @@
 ### **Susan Wright advances to runoff in Texas' 6th District special election with tight race for second spot - CNN **
 #### Sun, 02 May 2021 04:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNS8wMi9wb2xpdGljcy90ZXhhcy02dGgtZGlzdHJpY3Qtc3BlY2lhbC1lbGVjdGlvbi9pbmRleC5odG1s0gFaaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNS8wMi9wb2xpdGljcy90ZXhhcy02dGgtZGlzdHJpY3Qtc3BlY2lhbC1lbGVjdGlvbi9pbmRleC5odG1s?oc=5)
 ---
+### **India accounts for 1 in 3 new Covid cases being recorded. Here is its second wave in 5 charts - CNBC**
+#### Mon, 03 May 2021 05:41:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMDMvaW5kaWEtY292aWQtY3Jpc2lzLWNoYXJ0cy1zaG93LXRoZS1zZXZlcml0eS1vZi10aGUtc2Vjb25kLXdhdmUuaHRtbNIBZ2h0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA1LzAzL2luZGlhLWNvdmlkLWNyaXNpcy1jaGFydHMtc2hvdy10aGUtc2V2ZXJpdHktb2YtdGhlLXNlY29uZC13YXZlLmh0bWw?oc=5)
+---
