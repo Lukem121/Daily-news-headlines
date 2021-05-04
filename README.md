@@ -353,3 +353,6 @@
 ### **India accounts for 1 in 3 new Covid cases being recorded. Here is its second wave in 5 charts - CNBC**
 #### Mon, 03 May 2021 05:41:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMDMvaW5kaWEtY292aWQtY3Jpc2lzLWNoYXJ0cy1zaG93LXRoZS1zZXZlcml0eS1vZi10aGUtc2Vjb25kLXdhdmUuaHRtbNIBZ2h0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA1LzAzL2luZGlhLWNvdmlkLWNyaXNpcy1jaGFydHMtc2hvdy10aGUtc2V2ZXJpdHktb2YtdGhlLXNlY29uZC13YXZlLmh0bWw?oc=5)
 ---
+### **At least 23 dead after Mexico City metro overpass collapses - NBC News**
+#### Tue, 04 May 2021 08:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvbWV4aWNvLWNpdHktcmFpbC1vdmVycGFzcy1jb2xsYXBzZXMta2lsbGluZy0xMy1pbmp1cmluZy03MC1uMTI2NjIxNNIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjY2MjE0?oc=5)
+---
