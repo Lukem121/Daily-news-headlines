@@ -356,3 +356,6 @@
 ### **At least 23 dead after Mexico City metro overpass collapses - NBC News**
 #### Tue, 04 May 2021 08:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvbWV4aWNvLWNpdHktcmFpbC1vdmVycGFzcy1jb2xsYXBzZXMta2lsbGluZy0xMy1pbmp1cmluZy03MC1uMTI2NjIxNNIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjY2MjE0?oc=5)
 ---
+### **Trump's Facebook ban upheld by Oversight Board - NBC News**
+#### Wed, 05 May 2021 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3RlY2gvdGVjaC1uZXdzL3RydW1wLXMtZmFjZWJvb2stYmFuLXVwaGVsZC1vdmVyc2lnaHQtYm9hcmQtbjEyNjYzMznSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI2NjMzOQ?oc=5)
+---
