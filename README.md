@@ -359,3 +359,6 @@
 ### **Trump's Facebook ban upheld by Oversight Board - NBC News**
 #### Wed, 05 May 2021 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3RlY2gvdGVjaC1uZXdzL3RydW1wLXMtZmFjZWJvb2stYmFuLXVwaGVsZC1vdmVyc2lnaHQtYm9hcmQtbjEyNjYzMznSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI2NjMzOQ?oc=5)
 ---
+### **Facebook Oversight Board upholds Trump suspension but orders company to review - CBS News**
+#### Thu, 06 May 2021 11:20:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiPmh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvdHJ1bXAtZmFjZWJvb2stc3VzcGVuc2lvbi11cGhlbGQv0gFCaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3MvdHJ1bXAtZmFjZWJvb2stc3VzcGVuc2lvbi11cGhlbGQv?oc=5)
+---
