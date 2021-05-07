@@ -362,3 +362,6 @@
 ### **Facebook Oversight Board upholds Trump suspension but orders company to review - CBS News**
 #### Thu, 06 May 2021 11:20:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiPmh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvdHJ1bXAtZmFjZWJvb2stc3VzcGVuc2lvbi11cGhlbGQv0gFCaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3MvdHJ1bXAtZmFjZWJvb2stc3VzcGVuc2lvbi11cGhlbGQv?oc=5)
 ---
+### **Rep. Liz Cheney could lose GOP leadership role over her criticism of Trump. What does that mean? - USA TODAY**
+#### Fri, 07 May 2021 09:01:03 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL3BvbGl0aWNzLzIwMjEvMDUvMDcvbGl6LWNoZW5leS1yZXB1YmxpY2Fucy13YW50LWhlci1vdXQtYnV0LXdoYXQtaXQtbWVhbnMvNDk1NjU5NzAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzQ5NTY1OTcwMDE?oc=5)
+---
