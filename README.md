@@ -374,3 +374,6 @@
 ### **McCarthy backs Elise Stefanik to replace Liz Cheney in House GOP leadership - CBS News**
 #### Mon, 10 May 2021 10:56:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvbGl6LWNoZW5leS1yZXB1YmxpY2FuLWxlYWRlcnNoaXAtZWxpc2Utc3RlZmFuaWsta2V2aW4tbWNjYXJ0aHkv0gFgaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3MvbGl6LWNoZW5leS1yZXB1YmxpY2FuLWxlYWRlcnNoaXAtZWxpc2Utc3RlZmFuaWsta2V2aW4tbWNjYXJ0aHkv?oc=5)
 ---
+### **McCarthy sets vote for Wednesday to remove Liz Cheney from House Republican leadership - CBS News**
+#### Tue, 11 May 2021 10:55:50 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvbGl6LWNoZW5leS1ob3VzZS1sZWFkZXJzaGlwLXZvdGUtd2VkbmVzZGF5LWtldmluLW1jY2FydGh5L9IBW2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9uZXdzL2xpei1jaGVuZXktaG91c2UtbGVhZGVyc2hpcC12b3RlLXdlZG5lc2RheS1rZXZpbi1tY2NhcnRoeS8?oc=5)
+---
