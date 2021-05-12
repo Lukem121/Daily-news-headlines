@@ -377,3 +377,6 @@
 ### **McCarthy sets vote for Wednesday to remove Liz Cheney from House Republican leadership - CBS News**
 #### Tue, 11 May 2021 10:55:50 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvbGl6LWNoZW5leS1ob3VzZS1sZWFkZXJzaGlwLXZvdGUtd2VkbmVzZGF5LWtldmluLW1jY2FydGh5L9IBW2h0dHBzOi8vd3d3LmNic25ld3MuY29tL2FtcC9uZXdzL2xpei1jaGVuZXktaG91c2UtbGVhZGVyc2hpcC12b3RlLXdlZG5lc2RheS1rZXZpbi1tY2NhcnRoeS8?oc=5)
 ---
+### **House GOP expels Liz Cheney from leadership as she vows to continue fight against Trump - CNBC**
+#### Wed, 12 May 2021 11:31:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMTIvaG91c2UtZ29wLXZvdGVzLXRvLW91c3QtdHJ1bXAtY3JpdGljLWxpei1jaGVuZXkuaHRtbNIBWGh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA1LzEyL2hvdXNlLWdvcC12b3Rlcy10by1vdXN0LXRydW1wLWNyaXRpYy1saXotY2hlbmV5Lmh0bWw?oc=5)
+---
