@@ -380,3 +380,6 @@
 ### **House GOP expels Liz Cheney from leadership as she vows to continue fight against Trump - CNBC**
 #### Wed, 12 May 2021 11:31:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMTIvaG91c2UtZ29wLXZvdGVzLXRvLW91c3QtdHJ1bXAtY3JpdGljLWxpei1jaGVuZXkuaHRtbNIBWGh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA1LzEyL2hvdXNlLWdvcC12b3Rlcy10by1vdXN0LXRydW1wLWNyaXRpYy1saXotY2hlbmV5Lmh0bWw?oc=5)
 ---
+### **'It's a scary thing': Cheney expresses dismay after House GOP ousts her from leadership - NBC News**
+#### Thu, 13 May 2021 12:22:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2NvbmdyZXNzL2l0LXMtc2NhcnktdGhpbmctY2hlbmV5LWV4cHJlc3Nlcy1kaXNtYXktYWZ0ZXItaG91c2UtZ29wLW4xMjY3MTkz0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjcxOTM?oc=5)
+---
