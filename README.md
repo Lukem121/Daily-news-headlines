@@ -383,3 +383,6 @@
 ### **'It's a scary thing': Cheney expresses dismay after House GOP ousts her from leadership - NBC News**
 #### Thu, 13 May 2021 12:22:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2NvbmdyZXNzL2l0LXMtc2NhcnktdGhpbmctY2hlbmV5LWV4cHJlc3Nlcy1kaXNtYXktYWZ0ZXItaG91c2UtZ29wLW4xMjY3MTkz0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjcxOTM?oc=5)
 ---
+### **CDC mask announcement's timing questioned by GOP lawmakers amid Biden crises - Fox News**
+#### Fri, 14 May 2021 05:58:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2dvcC1sYXdtYWtlcnMtdGltaW5nLWNkYy1tYXNrLWFubm91bmNlbWVudC1iaWRlbtIBVWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2dvcC1sYXdtYWtlcnMtdGltaW5nLWNkYy1tYXNrLWFubm91bmNlbWVudC1iaWRlbi5hbXA?oc=5)
+---
