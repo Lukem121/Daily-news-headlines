@@ -386,3 +386,6 @@
 ### **CDC mask announcement's timing questioned by GOP lawmakers amid Biden crises - Fox News**
 #### Fri, 14 May 2021 05:58:28 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2dvcC1sYXdtYWtlcnMtdGltaW5nLWNkYy1tYXNrLWFubm91bmNlbWVudC1iaWRlbtIBVWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2dvcC1sYXdtYWtlcnMtdGltaW5nLWNkYy1tYXNrLWFubm91bmNlbWVudC1iaWRlbi5hbXA?oc=5)
 ---
+### **Biden Takes Muted Approach To Violence In Israel And Gaza - NPR**
+#### Sat, 15 May 2021 11:00:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNS8xNS85OTY5MzM2OTYvYmlkZW4tdGFrZXMtbXV0ZWQtYXBwcm9hY2gtdG8tdmlvbGVuY2UtaW4taXNyYWVsLWFuZC1nYXph0gEA?oc=5)
+---
