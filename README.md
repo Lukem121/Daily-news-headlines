@@ -389,3 +389,6 @@
 ### **Biden Takes Muted Approach To Violence In Israel And Gaza - NPR**
 #### Sat, 15 May 2021 11:00:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNS8xNS85OTY5MzM2OTYvYmlkZW4tdGFrZXMtbXV0ZWQtYXBwcm9hY2gtdG8tdmlvbGVuY2UtaW4taXNyYWVsLWFuZC1nYXph0gEA?oc=5)
 ---
+### **Islamic nations hold emergency summit on Israel-Gaza attacks - The Associated Press**
+#### Sun, 16 May 2021 10:20:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3dvcmxkLW5ld3MtaXNyYWVsLWV1cm9wZS1taWRkbGUtZWFzdC1zdW1taXRzLTdhZGQzZTRkZGI0ZDUyY2M3MDRhY2RlOGRjYjFhNjUw0gEA?oc=5)
+---
