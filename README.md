@@ -392,3 +392,6 @@
 ### **Islamic nations hold emergency summit on Israel-Gaza attacks - The Associated Press**
 #### Sun, 16 May 2021 10:20:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3dvcmxkLW5ld3MtaXNyYWVsLWV1cm9wZS1taWRkbGUtZWFzdC1zdW1taXRzLTdhZGQzZTRkZGI0ZDUyY2M3MDRhY2RlOGRjYjFhNjUw0gEA?oc=5)
 ---
+### **Iran nuclear deal could weaken U.S. efforts to end Israel-Gaza violence - CNBC**
+#### Mon, 17 May 2021 08:43:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMTcvaXJhbi1udWNsZWFyLWRlYWwtY291bGQtd2Vha2VuLXVzLWVmZm9ydHMtdG8tZW5kLWlzcmFlbC1nYXphLXZpb2xlbmNlLmh0bWzSAW5odHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNS8xNy9pcmFuLW51Y2xlYXItZGVhbC1jb3VsZC13ZWFrZW4tdXMtZWZmb3J0cy10by1lbmQtaXNyYWVsLWdhemEtdmlvbGVuY2UuaHRtbA?oc=5)
+---
