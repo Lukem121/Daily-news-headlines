@@ -395,3 +395,6 @@
 ### **Iran nuclear deal could weaken U.S. efforts to end Israel-Gaza violence - CNBC**
 #### Mon, 17 May 2021 08:43:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMTcvaXJhbi1udWNsZWFyLWRlYWwtY291bGQtd2Vha2VuLXVzLWVmZm9ydHMtdG8tZW5kLWlzcmFlbC1nYXphLXZpb2xlbmNlLmh0bWzSAW5odHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNS8xNy9pcmFuLW51Y2xlYXItZGVhbC1jb3VsZC13ZWFrZW4tdXMtZWZmb3J0cy10by1lbmQtaXNyYWVsLWdhemEtdmlvbGVuY2UuaHRtbA?oc=5)
 ---
+### **Israel and Hamas trade attacks after Biden calls for ceasefire - NBC News**
+#### Tue, 18 May 2021 09:53:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvaXNyYWVsLWhpdHMtZ2F6YS1uZXctYWlyc3RyaWtlcy1kZXNwaXRlLWJpZGVuLWpvaW5pbmctY2Vhc2VmaXJlLWNhbGxzLW4xMjY3NzI10gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjc3MjU?oc=5)
+---
