@@ -401,3 +401,6 @@
 ### **Israeli Warplanes Pound Hamas Tunnels In Gaza - NPR**
 #### Wed, 19 May 2021 10:13:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNS8xOS85OTgxNTIxNjQvaXNyYWVsaS13YXJwbGFuZXMtcG91bmQtaGFtYXMtdHVubmVscy1pbi1nYXph0gEA?oc=5)
 ---
+### **Israel unleashes airstrikes after vowing to press on in Gaza - USA TODAY**
+#### Thu, 20 May 2021 08:09:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzL3dvcmxkLzIwMjEvMDUvMjAvaXNyYWVsLXVubGVhc2hlcy1zdHJpa2VzLWdhemEvNTE3OTI1NDAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzUxNzkyNTQwMDE?oc=5)
+---
