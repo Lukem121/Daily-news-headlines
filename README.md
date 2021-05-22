@@ -407,3 +407,6 @@
 ### **World Leaders Call For Long-Term Resolution In Gaza Conflict Following Cease-Fire - NPR**
 #### Fri, 21 May 2021 10:16:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNS8yMS85OTg5Mzc4MTkvd29ybGQtbGVhZGVycy1jYWxsLWZvci1sb25nLXRlcm0tcmVzb2x1dGlvbi1pbi1nYXphLWNvbmZsaWN0LWZvbGxvd2luZy1jZWFzZS1maXLSAQA?oc=5)
 ---
+### **LIVE UPDATES: Israel, Egypt discuss strengthening cease-fire with Hamas - Fox News**
+#### Sat, 22 May 2021 09:51:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL2xpdmUtdXBkYXRlcy1pc3JhZWwtYW5kLWVneXB0LWRpc2N1c3Mtc3RyZW5ndGhlbmluZy1jZWFzZS1maXJlLXdpdGgtaGFtYXPSAWtodHRwczovL3d3dy5mb3huZXdzLmNvbS93b3JsZC9saXZlLXVwZGF0ZXMtaXNyYWVsLWFuZC1lZ3lwdC1kaXNjdXNzLXN0cmVuZ3RoZW5pbmctY2Vhc2UtZmlyZS13aXRoLWhhbWFzLmFtcA?oc=5)
+---
