@@ -410,3 +410,6 @@
 ### **LIVE UPDATES: Israel, Egypt discuss strengthening cease-fire with Hamas - Fox News**
 #### Sat, 22 May 2021 09:51:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL2xpdmUtdXBkYXRlcy1pc3JhZWwtYW5kLWVneXB0LWRpc2N1c3Mtc3RyZW5ndGhlbmluZy1jZWFzZS1maXJlLXdpdGgtaGFtYXPSAWtodHRwczovL3d3dy5mb3huZXdzLmNvbS93b3JsZC9saXZlLXVwZGF0ZXMtaXNyYWVsLWFuZC1lZ3lwdC1kaXNjdXNzLXN0cmVuZ3RoZW5pbmctY2Vhc2UtZmlyZS13aXRoLWhhbWFzLmFtcA?oc=5)
 ---
+### **LIVE UPDATES: Hamas holds defiant military parade, top leader appears - Fox News**
+#### Sun, 23 May 2021 07:31:55 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL2xpdmUtdXBkYXRlcy1oYW1hcy1kZWZpYW50LXdpdGgtbWlsaXRhcnktcGFyYWRlLWFwcGVhcmFuY2Utb2YtdG9wLWxlYWRlctIBamh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL2xpdmUtdXBkYXRlcy1oYW1hcy1kZWZpYW50LXdpdGgtbWlsaXRhcnktcGFyYWRlLWFwcGVhcmFuY2Utb2YtdG9wLWxlYWRlci5hbXA?oc=5)
+---
