@@ -416,3 +416,6 @@
 ### **Belarus Ryanair flight diverted: Passengers describe panic on board - BBC News**
 #### Mon, 24 May 2021 11:29:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiLmh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC1ldXJvcGUtNTcxODAyNzXSATJodHRwczovL3d3dy5iYmMuY29tL25ld3Mvd29ybGQtZXVyb3BlLTU3MTgwMjc1LmFtcA?oc=5)
 ---
+### **Russia's power over Belarus is in the spotlight after plane 'hijacking' incident - CNBC**
+#### Tue, 25 May 2021 05:56:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMjUvcnVzc2lhcy1kZWZlbnNlLW9mLWJlbGFydXMtaGlqYWNrLXNob3dzLWl0cy1ncm93aW5nLWluZmx1ZW5jZS5odG1s0gFmaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDUvMjUvcnVzc2lhcy1kZWZlbnNlLW9mLWJlbGFydXMtaGlqYWNrLXNob3dzLWl0cy1ncm93aW5nLWluZmx1ZW5jZS5odG1s?oc=5)
+---
