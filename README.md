@@ -419,3 +419,6 @@
 ### **Russia's power over Belarus is in the spotlight after plane 'hijacking' incident - CNBC**
 #### Tue, 25 May 2021 05:56:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDUvMjUvcnVzc2lhcy1kZWZlbnNlLW9mLWJlbGFydXMtaGlqYWNrLXNob3dzLWl0cy1ncm93aW5nLWluZmx1ZW5jZS5odG1s0gFmaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDUvMjUvcnVzc2lhcy1kZWZlbnNlLW9mLWJlbGFydXMtaGlqYWNrLXNob3dzLWl0cy1ncm93aW5nLWluZmx1ZW5jZS5odG1s?oc=5)
 ---
+### **Portland police declare riot as marchers break windows on anniversary of George Floyd’s murder - OregonLive**
+#### Wed, 26 May 2021 05:02:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijgFodHRwczovL3d3dy5vcmVnb25saXZlLmNvbS9wb3J0bGFuZC8yMDIxLzA1L3BvcnRsYW5kLXBvbGljZS1kZWNsYXJlLXJpb3QtYXMtbWFyY2hlcnMtYnJlYWstd2luZG93cy1vbi1hbm5pdmVyc2FyeS1vZi1nZW9yZ2UtZmxveWRzLW11cmRlci5odG1s0gGdAWh0dHBzOi8vd3d3Lm9yZWdvbmxpdmUuY29tL3BvcnRsYW5kLzIwMjEvMDUvcG9ydGxhbmQtcG9saWNlLWRlY2xhcmUtcmlvdC1hcy1tYXJjaGVycy1icmVhay13aW5kb3dzLW9uLWFubml2ZXJzYXJ5LW9mLWdlb3JnZS1mbG95ZHMtbXVyZGVyLmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
