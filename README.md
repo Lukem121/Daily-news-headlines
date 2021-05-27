@@ -422,3 +422,6 @@
 ### **Portland police declare riot as marchers break windows on anniversary of George Floyd’s murder - OregonLive**
 #### Wed, 26 May 2021 05:02:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijgFodHRwczovL3d3dy5vcmVnb25saXZlLmNvbS9wb3J0bGFuZC8yMDIxLzA1L3BvcnRsYW5kLXBvbGljZS1kZWNsYXJlLXJpb3QtYXMtbWFyY2hlcnMtYnJlYWstd2luZG93cy1vbi1hbm5pdmVyc2FyeS1vZi1nZW9yZ2UtZmxveWRzLW11cmRlci5odG1s0gGdAWh0dHBzOi8vd3d3Lm9yZWdvbmxpdmUuY29tL3BvcnRsYW5kLzIwMjEvMDUvcG9ydGxhbmQtcG9saWNlLWRlY2xhcmUtcmlvdC1hcy1tYXJjaGVycy1icmVhay13aW5kb3dzLW9uLWFubml2ZXJzYXJ5LW9mLWdlb3JnZS1mbG95ZHMtbXVyZGVyLmh0bWw_b3V0cHV0VHlwZT1hbXA?oc=5)
 ---
+### **San Jose shooting: gunman had talked about killing people at work - The Guardian**
+#### Thu, 27 May 2021 11:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbWF5LzI3L3Nhbi1qb3NlLXNob290aW5nLWd1bm1hbi10YWxrZWQtYWJvdXQta2lsbGluZy1wZW9wbGXSAWRodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL21heS8yNy9zYW4tam9zZS1zaG9vdGluZy1ndW5tYW4tdGFsa2VkLWFib3V0LWtpbGxpbmctcGVvcGxl?oc=5)
+---
