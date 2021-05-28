@@ -425,3 +425,6 @@
 ### **San Jose shooting: gunman had talked about killing people at work - The Guardian**
 #### Thu, 27 May 2021 11:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbWF5LzI3L3Nhbi1qb3NlLXNob290aW5nLWd1bm1hbi10YWxrZWQtYWJvdXQta2lsbGluZy1wZW9wbGXSAWRodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL21heS8yNy9zYW4tam9zZS1zaG9vdGluZy1ndW5tYW4tdGFsa2VkLWFib3V0LWtpbGxpbmctcGVvcGxl?oc=5)
 ---
+### **California's strict gun laws no deterrent for San Jose gunman - Fox News**
+#### Fri, 28 May 2021 03:43:03 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3VzL2NhbGlmb3JuaWFzLXN0cmljdC1ndW4tbGF3cy1uby1kZXRlcnJlbnQtZm9yLXNhbi1qb3NlLWd1bm1hbtIBW2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3VzL2NhbGlmb3JuaWFzLXN0cmljdC1ndW4tbGF3cy1uby1kZXRlcnJlbnQtZm9yLXNhbi1qb3NlLWd1bm1hbi5hbXA?oc=5)
+---
