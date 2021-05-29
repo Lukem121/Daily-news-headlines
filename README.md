@@ -428,3 +428,6 @@
 ### **California's strict gun laws no deterrent for San Jose gunman - Fox News**
 #### Fri, 28 May 2021 03:43:03 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3VzL2NhbGlmb3JuaWFzLXN0cmljdC1ndW4tbGF3cy1uby1kZXRlcnJlbnQtZm9yLXNhbi1qb3NlLWd1bm1hbtIBW2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3VzL2NhbGlmb3JuaWFzLXN0cmljdC1ndW4tbGF3cy1uby1kZXRlcnJlbnQtZm9yLXNhbi1qb3NlLWd1bm1hbi5hbXA?oc=5)
 ---
+### **Kyrsten Sinema Called January 6 Commission 'Critical,' But Missed Vote - Newsweek**
+#### Sat, 29 May 2021 08:20:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9reXJzdGVuLXNpbmVtYS1jYWxsZWQtamFudWFyeS02LWNvbW1pc3Npb24tY3JpdGljYWwtbWlzc2VkLXZvdGUtMTU5NjEwM9IBZmh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9reXJzdGVuLXNpbmVtYS1jYWxsZWQtamFudWFyeS02LWNvbW1pc3Npb24tY3JpdGljYWwtbWlzc2VkLXZvdGUtMTU5NjEwMz9hbXA9MQ?oc=5)
+---
