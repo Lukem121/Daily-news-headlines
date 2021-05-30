@@ -431,3 +431,6 @@
 ### **Kyrsten Sinema Called January 6 Commission 'Critical,' But Missed Vote - Newsweek**
 #### Sat, 29 May 2021 08:20:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9reXJzdGVuLXNpbmVtYS1jYWxsZWQtamFudWFyeS02LWNvbW1pc3Npb24tY3JpdGljYWwtbWlzc2VkLXZvdGUtMTU5NjEwM9IBZmh0dHBzOi8vd3d3Lm5ld3N3ZWVrLmNvbS9reXJzdGVuLXNpbmVtYS1jYWxsZWQtamFudWFyeS02LWNvbW1pc3Npb24tY3JpdGljYWwtbWlzc2VkLXZvdGUtMTU5NjEwMz9hbXA9MQ?oc=5)
 ---
+### **Two dead and over 20 injured in Miami mass shooting, police say - NBC News**
+#### Sun, 30 May 2021 10:39:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvdXMtbmV3cy90d28tZGVhZC1vdmVyLTIwLWluanVyZWQtbWlhbWktbWFzcy1zaG9vdGluZy1wb2xpY2Utc2F5LW4xMjY5MTEz0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjkxMTM?oc=5)
+---
