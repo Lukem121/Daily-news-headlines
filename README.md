@@ -434,3 +434,6 @@
 ### **Two dead and over 20 injured in Miami mass shooting, police say - NBC News**
 #### Sun, 30 May 2021 10:39:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvdXMtbmV3cy90d28tZGVhZC1vdmVyLTIwLWluanVyZWQtbWlhbWktbWFzcy1zaG9vdGluZy1wb2xpY2Utc2F5LW4xMjY5MTEz0gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyNjkxMTM?oc=5)
 ---
+### **Texas Democrats Stymie GOP Voting Bill, for Now - The New York Times**
+#### Mon, 31 May 2021 11:11:18 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDUvMzEvdXMvcG9saXRpY3MvdGV4YXMtdm90aW5nLWJpbGwuaHRtbNIBSWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDUvMzEvdXMvcG9saXRpY3MvdGV4YXMtdm90aW5nLWJpbGwuYW1wLmh0bWw?oc=5)
+---
