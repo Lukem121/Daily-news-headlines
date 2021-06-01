@@ -437,3 +437,6 @@
 ### **Texas Democrats Stymie GOP Voting Bill, for Now - The New York Times**
 #### Mon, 31 May 2021 11:11:18 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDUvMzEvdXMvcG9saXRpY3MvdGV4YXMtdm90aW5nLWJpbGwuaHRtbNIBSWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDUvMzEvdXMvcG9saXRpY3MvdGV4YXMtdm90aW5nLWJpbGwuYW1wLmh0bWw?oc=5)
 ---
+### **Revolt by Texas Democrats heaps pressure on Washington to act on voting reform - CNN **
+#### Tue, 01 Jun 2021 11:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8wMS9wb2xpdGljcy90ZXhhcy1kZW1vY3JhdHMtdm90aW5nLXJlZm9ybS1wcmVzc3VyZS9pbmRleC5odG1s0gFdaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNi8wMS9wb2xpdGljcy90ZXhhcy1kZW1vY3JhdHMtdm90aW5nLXJlZm9ybS1wcmVzc3VyZS9pbmRleC5odG1s?oc=5)
+---
