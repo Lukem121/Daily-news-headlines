@@ -440,3 +440,6 @@
 ### **Revolt by Texas Democrats heaps pressure on Washington to act on voting reform - CNN **
 #### Tue, 01 Jun 2021 11:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8wMS9wb2xpdGljcy90ZXhhcy1kZW1vY3JhdHMtdm90aW5nLXJlZm9ybS1wcmVzc3VyZS9pbmRleC5odG1s0gFdaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNi8wMS9wb2xpdGljcy90ZXhhcy1kZW1vY3JhdHMtdm90aW5nLXJlZm9ybS1wcmVzc3VyZS9pbmRleC5odG1s?oc=5)
 ---
+### **Kharg, Iran's biggest ship, catches fire and sinks in the Gulf of Oman under unclear circumstances - CBS News**
+#### Wed, 02 Jun 2021 11:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiQWh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3Mva2hhcmctaXJhbi1uYXZ5LXNoaXAtZmlyZS1ndWxmLW9tYW4v0gFFaHR0cHM6Ly93d3cuY2JzbmV3cy5jb20vYW1wL25ld3Mva2hhcmctaXJhbi1uYXZ5LXNoaXAtZmlyZS1ndWxmLW9tYW4v?oc=5)
+---
