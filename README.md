@@ -446,3 +446,6 @@
 ### **Israel’s fragile anti-Netanyahu coalition in race to get sworn in - The Guardian**
 #### Thu, 03 Jun 2021 11:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2p1bi8wMy9pc3JhZWwtZnJhZ2lsZS1hbnRpLW5ldGFueWFodS1jb2FsaXRpb24tcmFjZS1zd29ybi1pbtIBY2h0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2p1bi8wMy9pc3JhZWwtZnJhZ2lsZS1hbnRpLW5ldGFueWFodS1jb2FsaXRpb24tcmFjZS1zd29ybi1pbg?oc=5)
 ---
+### **Pompeo: NIH tried to suppress State Dept virus probe; Fauci repeating Chinese Communist Party 'excuses' - Fox News**
+#### Fri, 04 Jun 2021 04:04:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL3BvbXBlby1uaWgtc3VwcHJlc3Mtc3RhdGUtZGVwdC12aXJ1cy1wcm9iZdIBTGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL3BvbXBlby1uaWgtc3VwcHJlc3Mtc3RhdGUtZGVwdC12aXJ1cy1wcm9iZS5hbXA?oc=5)
+---
