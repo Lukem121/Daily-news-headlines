@@ -449,3 +449,6 @@
 ### **Pompeo: NIH tried to suppress State Dept virus probe; Fauci repeating Chinese Communist Party 'excuses' - Fox News**
 #### Fri, 04 Jun 2021 04:04:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL3BvbXBlby1uaWgtc3VwcHJlc3Mtc3RhdGUtZGVwdC12aXJ1cy1wcm9iZdIBTGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL3BvbXBlby1uaWgtc3VwcHJlc3Mtc3RhdGUtZGVwdC12aXJ1cy1wcm9iZS5hbXA?oc=5)
 ---
+### **G-7 nations reach historic deal on global tax reform - CNBC**
+#### Sat, 05 Jun 2021 11:32:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDYvMDUvZy03LW5hdGlvbnMtcmVhY2gtaGlzdG9yaWMtZGVhbC1vbi1nbG9iYWwtdGF4LXJlZm9ybS5odG1s0gFdaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDYvMDUvZy03LW5hdGlvbnMtcmVhY2gtaGlzdG9yaWMtZGVhbC1vbi1nbG9iYWwtdGF4LXJlZm9ybS5odG1s?oc=5)
+---
