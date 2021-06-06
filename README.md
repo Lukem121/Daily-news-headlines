@@ -452,3 +452,6 @@
 ### **G-7 nations reach historic deal on global tax reform - CNBC**
 #### Sat, 05 Jun 2021 11:32:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDYvMDUvZy03LW5hdGlvbnMtcmVhY2gtaGlzdG9yaWMtZGVhbC1vbi1nbG9iYWwtdGF4LXJlZm9ybS5odG1s0gFdaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDYvMDUvZy03LW5hdGlvbnMtcmVhY2gtaGlzdG9yaWMtZGVhbC1vbi1nbG9iYWwtdGF4LXJlZm9ybS5odG1s?oc=5)
 ---
+### **Trump unloaded on Georgia’s GOP governor. But Brian Kemp is still standing. - POLITICO**
+#### Sun, 06 Jun 2021 11:00:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiPmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDYvMDYvZ29wLWNvbnZlbnRpb24tNDkxOTkz0gFCaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDYvMDYvZ29wLWNvbnZlbnRpb24tNDkxOTkz?oc=5)
+---
