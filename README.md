@@ -455,3 +455,6 @@
 ### **Trump unloaded on Georgia’s GOP governor. But Brian Kemp is still standing. - POLITICO**
 #### Sun, 06 Jun 2021 11:00:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiPmh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDYvMDYvZ29wLWNvbnZlbnRpb24tNDkxOTkz0gFCaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDYvMDYvZ29wLWNvbnZlbnRpb24tNDkxOTkz?oc=5)
 ---
+### **Watch Chris Wallace Confront Manchin on Whether He’s “Being Naive” About Bipartisanship - Slate**
+#### Sun, 06 Jun 2021 22:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vc2xhdGUuY29tL25ld3MtYW5kLXBvbGl0aWNzLzIwMjEvMDYvdmlkZW8tY2hyaXMtd2FsbGFjZS1jb25mcm9udHMtam9lLW1hbmNoaW4tbmFpdmUuaHRtbNIBX2h0dHBzOi8vc2xhdGUuY29tL25ld3MtYW5kLXBvbGl0aWNzLzIwMjEvMDYvdmlkZW8tY2hyaXMtd2FsbGFjZS1jb25mcm9udHMtam9lLW1hbmNoaW4tbmFpdmUuYW1w?oc=5)
+---
