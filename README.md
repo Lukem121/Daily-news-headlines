@@ -461,3 +461,6 @@
 ### **For years, the underworld thought its phones were safe. They fell for an encrypted app trap - CNN **
 #### Tue, 08 Jun 2021 11:22:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8wOC9hdXN0cmFsaWEvYWZwLWZiaS1hbm9tLWFwcC1vcGVyYXRpb24taXJvbnNpZGUvaW5kZXguaHRtbNIBW2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDYvMDgvYXVzdHJhbGlhL2FmcC1mYmktYW5vbS1hcHAtb3BlcmF0aW9uLWlyb25zaWRlL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Sen. Josh Hawley holds up Biden personnel nominee over critical race theory - CNN **
+#### Wed, 09 Jun 2021 10:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8wOC9wb2xpdGljcy9qb3NoLWhhd2xleS1raXJhbi1haHVqYS1jcml0aWNhbC1yYWNlLXRoZW9yeS9pbmRleC5odG1s0gFjaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNi8wOC9wb2xpdGljcy9qb3NoLWhhd2xleS1raXJhbi1haHVqYS1jcml0aWNhbC1yYWNlLXRoZW9yeS9pbmRleC5odG1s?oc=5)
+---
