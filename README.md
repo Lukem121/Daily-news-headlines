@@ -464,3 +464,6 @@
 ### **Sen. Josh Hawley holds up Biden personnel nominee over critical race theory - CNN **
 #### Wed, 09 Jun 2021 10:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8wOC9wb2xpdGljcy9qb3NoLWhhd2xleS1raXJhbi1haHVqYS1jcml0aWNhbC1yYWNlLXRoZW9yeS9pbmRleC5odG1s0gFjaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNi8wOC9wb2xpdGljcy9qb3NoLWhhd2xleS1raXJhbi1haHVqYS1jcml0aWNhbC1yYWNlLXRoZW9yeS9pbmRleC5odG1s?oc=5)
 ---
+### **Consumer prices jump 5% in May, fastest pace since the summer of 2008 - CNBC**
+#### Thu, 10 Jun 2021 12:31:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDYvMTAvY3BpLW1heS0yMDIxLmh0bWzSATVodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNi8xMC9jcGktbWF5LTIwMjEuaHRtbA?oc=5)
+---
