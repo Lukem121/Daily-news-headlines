@@ -467,3 +467,6 @@
 ### **Consumer prices jump 5% in May, fastest pace since the summer of 2008 - CNBC**
 #### Thu, 10 Jun 2021 12:31:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDYvMTAvY3BpLW1heS0yMDIxLmh0bWzSATVodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNi8xMC9jcGktbWF5LTIwMjEuaHRtbA?oc=5)
 ---
+### **Trump DoJ secretly seized House Democrats’ data in crackdown on leaks - The Guardian**
+#### Fri, 11 Jun 2021 12:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzExL3RydW1wLWRvai1kZW1vY3JhdHMtZGF0YS1zZWl6ZWQtYXBwbGUtYWRhbS1zY2hpZmbSAWFodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2p1bi8xMS90cnVtcC1kb2otZGVtb2NyYXRzLWRhdGEtc2VpemVkLWFwcGxlLWFkYW0tc2NoaWZm?oc=5)
+---
