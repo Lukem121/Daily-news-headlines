@@ -470,3 +470,6 @@
 ### **Trump DoJ secretly seized House Democrats’ data in crackdown on leaks - The Guardian**
 #### Fri, 11 Jun 2021 12:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzExL3RydW1wLWRvai1kZW1vY3JhdHMtZGF0YS1zZWl6ZWQtYXBwbGUtYWRhbS1zY2hpZmbSAWFodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2p1bi8xMS90cnVtcC1kb2otZGVtb2NyYXRzLWRhdGEtc2VpemVkLWFwcGxlLWFkYW0tc2NoaWZm?oc=5)
 ---
+### **Biden flourishes in Trump’s absence from the world stage - POLITICO**
+#### Sat, 12 Jun 2021 11:00:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDYvMTIvdHJ1bXAtYmlkZW4tcmVjZXB0aW9uLTQ5MzYwNtIBSWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzA2LzEyL3RydW1wLWJpZGVuLXJlY2VwdGlvbi00OTM2MDY?oc=5)
+---
