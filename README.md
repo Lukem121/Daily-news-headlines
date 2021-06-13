@@ -473,3 +473,6 @@
 ### **Biden flourishes in Trump’s absence from the world stage - POLITICO**
 #### Sat, 12 Jun 2021 11:00:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDYvMTIvdHJ1bXAtYmlkZW4tcmVjZXB0aW9uLTQ5MzYwNtIBSWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzA2LzEyL3RydW1wLWJpZGVuLXJlY2VwdGlvbi00OTM2MDY?oc=5)
 ---
+### **Israel to swear in government, ending Netanyahu's long rule - POLITICO**
+#### Sun, 13 Jun 2021 10:45:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDYvMTMvaXNyYWVsLWJlbmphbWluLW5ldGFueWFodS00OTM5MTTSAQA?oc=5)
+---
