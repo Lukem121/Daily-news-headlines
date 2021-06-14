@@ -476,3 +476,6 @@
 ### **Israel to swear in government, ending Netanyahu's long rule - POLITICO**
 #### Sun, 13 Jun 2021 10:45:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDYvMTMvaXNyYWVsLWJlbmphbWluLW5ldGFueWFodS00OTM5MTTSAQA?oc=5)
 ---
+### **Netanyahu tries to go ‘scorched earth’ in last speech, swipes at Biden administration over Iran - Fox News**
+#### Mon, 14 Jun 2021 08:09:35 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL25ldGFueWFodS1nb2VzLXNjb3JjaGVkLWVhcnRoLWluLWxhc3Qtc3BlZWNoLXN3aXBlcy1hdC1iaWRlbi1hZG1pbmlzdHJhdGlvbi1vdmVyLWlyYW7SAXdodHRwczovL3d3dy5mb3huZXdzLmNvbS93b3JsZC9uZXRhbnlhaHUtZ29lcy1zY29yY2hlZC1lYXJ0aC1pbi1sYXN0LXNwZWVjaC1zd2lwZXMtYXQtYmlkZW4tYWRtaW5pc3RyYXRpb24tb3Zlci1pcmFuLmFtcA?oc=5)
+---
