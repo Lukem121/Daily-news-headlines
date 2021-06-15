@@ -479,3 +479,6 @@
 ### **Netanyahu tries to go ‘scorched earth’ in last speech, swipes at Biden administration over Iran - Fox News**
 #### Mon, 14 Jun 2021 08:09:35 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL25ldGFueWFodS1nb2VzLXNjb3JjaGVkLWVhcnRoLWluLWxhc3Qtc3BlZWNoLXN3aXBlcy1hdC1iaWRlbi1hZG1pbmlzdHJhdGlvbi1vdmVyLWlyYW7SAXdodHRwczovL3d3dy5mb3huZXdzLmNvbS93b3JsZC9uZXRhbnlhaHUtZ29lcy1zY29yY2hlZC1lYXJ0aC1pbi1sYXN0LXNwZWVjaC1zd2lwZXMtYXQtYmlkZW4tYWRtaW5pc3RyYXRpb24tb3Zlci1pcmFuLmFtcA?oc=5)
 ---
+### **President Biden shores up allied support before heading to Geneva for Putin summit - CNN **
+#### Tue, 15 Jun 2021 11:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8xNS9wb2xpdGljcy9wcmVzaWRlbnQtYmlkZW4taW50ZXJuYXRpb25hbC10cmlwLXZsYWRpbWlyLXB1dGluL2luZGV4Lmh0bWzSAWhodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA2LzE1L3BvbGl0aWNzL3ByZXNpZGVudC1iaWRlbi1pbnRlcm5hdGlvbmFsLXRyaXAtdmxhZGltaXItcHV0aW4vaW5kZXguaHRtbA?oc=5)
+---
