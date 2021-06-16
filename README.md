@@ -482,3 +482,6 @@
 ### **President Biden shores up allied support before heading to Geneva for Putin summit - CNN **
 #### Tue, 15 Jun 2021 11:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8xNS9wb2xpdGljcy9wcmVzaWRlbnQtYmlkZW4taW50ZXJuYXRpb25hbC10cmlwLXZsYWRpbWlyLXB1dGluL2luZGV4Lmh0bWzSAWhodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA2LzE1L3BvbGl0aWNzL3ByZXNpZGVudC1iaWRlbi1pbnRlcm5hdGlvbmFsLXRyaXAtdmxhZGltaXItcHV0aW4vaW5kZXguaHRtbA?oc=5)
 ---
+### **Biden begins long, tense meeting with Putin - NBC News**
+#### Wed, 16 Jun 2021 10:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL3doaXRlLWhvdXNlL2JpZGVuLXByZXBhcmVzLWxvbmctdGVuc2UtbWVldGluZy1wdXRpbi1uMTI3MDk1MNIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjcwOTUw?oc=5)
+---
