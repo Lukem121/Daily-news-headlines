@@ -485,3 +485,6 @@
 ### **Biden begins long, tense meeting with Putin - NBC News**
 #### Wed, 16 Jun 2021 10:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL3doaXRlLWhvdXNlL2JpZGVuLXByZXBhcmVzLWxvbmctdGVuc2UtbWVldGluZy1wdXRpbi1uMTI3MDk1MNIBLGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvYW1wL25jbmExMjcwOTUw?oc=5)
 ---
+### **Biden apologizes for snapping at CNN reporter over Putin questions: ‘I shouldn’t have been such a wise guy’ - The Washington Post**
+#### Thu, 17 Jun 2021 09:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNi8xNy9iaWRlbi1wdXRpbi1jbm4ta2FpdGxhbi1jb2xsaW5zL9IBYGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNi8xNy9iaWRlbi1wdXRpbi1jbm4ta2FpdGxhbi1jb2xsaW5zLz9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
