@@ -488,3 +488,6 @@
 ### **Biden apologizes for snapping at CNN reporter over Putin questions: ‘I shouldn’t have been such a wise guy’ - The Washington Post**
 #### Thu, 17 Jun 2021 09:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNi8xNy9iaWRlbi1wdXRpbi1jbm4ta2FpdGxhbi1jb2xsaW5zL9IBYGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNi8xNy9iaWRlbi1wdXRpbi1jbm4ta2FpdGxhbi1jb2xsaW5zLz9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **Here's how big tech companies are celebrating new national holiday, Juneteenth - CNBC**
+#### Fri, 18 Jun 2021 12:31:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDYvMTgvanVuZXRlZW50aC1ob3ctYmlnLXRlY2gtY29tcGFuaWVzLWFyZS1jZWxlYnJhdGluZy10aGUtbmV3LWhvbGlkYXkuaHRtbNIBamh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA2LzE4L2p1bmV0ZWVudGgtaG93LWJpZy10ZWNoLWNvbXBhbmllcy1hcmUtY2VsZWJyYXRpbmctdGhlLW5ldy1ob2xpZGF5Lmh0bWw?oc=5)
+---
