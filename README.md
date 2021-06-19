@@ -491,3 +491,6 @@
 ### **Here's how big tech companies are celebrating new national holiday, Juneteenth - CNBC**
 #### Fri, 18 Jun 2021 12:31:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDYvMTgvanVuZXRlZW50aC1ob3ctYmlnLXRlY2gtY29tcGFuaWVzLWFyZS1jZWxlYnJhdGluZy10aGUtbmV3LWhvbGlkYXkuaHRtbNIBamh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA2LzE4L2p1bmV0ZWVudGgtaG93LWJpZy10ZWNoLWNvbXBhbmllcy1hcmUtY2VsZWJyYXRpbmctdGhlLW5ldy1ob2xpZGF5Lmh0bWw?oc=5)
 ---
+### **Iran Election: Ebrahim Raisi Is Headed to Presidency as Rivals Concede - The New York Times**
+#### Sat, 19 Jun 2021 10:59:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDYvMTkvd29ybGQvbWlkZGxlZWFzdC9pcmFuLWVsZWN0aW9uLXByZXNpZGVudC1yYWlzaS5odG1s0gFaaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wNi8xOS93b3JsZC9taWRkbGVlYXN0L2lyYW4tZWxlY3Rpb24tcHJlc2lkZW50LXJhaXNpLmFtcC5odG1s?oc=5)
+---
