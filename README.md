@@ -494,3 +494,6 @@
 ### **Iran Election: Ebrahim Raisi Is Headed to Presidency as Rivals Concede - The New York Times**
 #### Sat, 19 Jun 2021 10:59:04 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDYvMTkvd29ybGQvbWlkZGxlZWFzdC9pcmFuLWVsZWN0aW9uLXByZXNpZGVudC1yYWlzaS5odG1s0gFaaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wNi8xOS93b3JsZC9taWRkbGVlYXN0L2lyYW4tZWxlY3Rpb24tcHJlc2lkZW50LXJhaXNpLmFtcC5odG1s?oc=5)
 ---
+### **1 person is dead after a truck hit pedestrians at a Florida Pride parade - CNN **
+#### Sun, 20 Jun 2021 12:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8yMC91cy9wcmlkZS1wYXJhZGUtZmxvcmlkYS10cnVjay1oaXRzLXBlZGVzdHJpYW5zL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA2LzIwL3VzL3ByaWRlLXBhcmFkZS1mbG9yaWRhLXRydWNrLWhpdHMtcGVkZXN0cmlhbnMvaW5kZXguaHRtbA?oc=5)
+---
