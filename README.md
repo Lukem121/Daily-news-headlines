@@ -497,3 +497,6 @@
 ### **1 person is dead after a truck hit pedestrians at a Florida Pride parade - CNN **
 #### Sun, 20 Jun 2021 12:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8yMC91cy9wcmlkZS1wYXJhZGUtZmxvcmlkYS10cnVjay1oaXRzLXBlZGVzdHJpYW5zL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA2LzIwL3VzL3ByaWRlLXBhcmFkZS1mbG9yaWRhLXRydWNrLWhpdHMtcGVkZXN0cmlhbnMvaW5kZXguaHRtbA?oc=5)
 ---
+### **Democrats face filibuster stress test on key voting bill. It's not just Manchin and Sinema. - NBC News**
+#### Mon, 21 Jun 2021 08:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2NvbmdyZXNzL2RlbW9jcmF0cy1mYWNlLWZpbGlidXN0ZXItc3RyZXNzLXRlc3Qta2V5LXZvdGluZy1iaWxsLWl0LXMtbjEyNzEzMDbSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI3MTMwNg?oc=5)
+---
