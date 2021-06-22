@@ -500,3 +500,6 @@
 ### **Democrats face filibuster stress test on key voting bill. It's not just Manchin and Sinema. - NBC News**
 #### Mon, 21 Jun 2021 08:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2NvbmdyZXNzL2RlbW9jcmF0cy1mYWNlLWZpbGlidXN0ZXItc3RyZXNzLXRlc3Qta2V5LXZvdGluZy1iaWxsLWl0LXMtbjEyNzEzMDbSASxodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9uY25hMTI3MTMwNg?oc=5)
 ---
+### **Senate Democrats brace for defeat on signature voting and election bill amid stiff GOP resistance - CNN **
+#### Tue, 22 Jun 2021 11:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8yMi9wb2xpdGljcy9zZW5hdGUtZGVtb2NyYXRzLXZvdGluZy1iaWxsL2luZGV4Lmh0bWzSAVNodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA2LzIyL3BvbGl0aWNzL3NlbmF0ZS1kZW1vY3JhdHMtdm90aW5nLWJpbGwvaW5kZXguaHRtbA?oc=5)
+---
