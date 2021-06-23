@@ -503,3 +503,6 @@
 ### **Senate Democrats brace for defeat on signature voting and election bill amid stiff GOP resistance - CNN **
 #### Tue, 22 Jun 2021 11:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8yMi9wb2xpdGljcy9zZW5hdGUtZGVtb2NyYXRzLXZvdGluZy1iaWxsL2luZGV4Lmh0bWzSAVNodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA2LzIyL3BvbGl0aWNzL3NlbmF0ZS1kZW1vY3JhdHMtdm90aW5nLWJpbGwvaW5kZXguaHRtbA?oc=5)
 ---
+### **Adams takes fragile lead in New York City Democratic mayoral primary, Sliwa wins GOP primary - CNBC**
+#### Wed, 23 Jun 2021 11:07:39 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigAFodHRwczovL3d3dy5jbmJjLmNvbS8yMDIxLzA2LzIzL2FkYW1zLXRha2VzLWZyYWdpbGUtbGVhZC1pbi1uZXcteW9yay1jaXR5LWRlbW9jcmF0aWMtbWF5b3JhbC1wcmltYXJ5LXNsaXdhLXdpbnMtZ29wLXByaW1hcnkuaHRtbNIBhAFodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNi8yMy9hZGFtcy10YWtlcy1mcmFnaWxlLWxlYWQtaW4tbmV3LXlvcmstY2l0eS1kZW1vY3JhdGljLW1heW9yYWwtcHJpbWFyeS1zbGl3YS13aW5zLWdvcC1wcmltYXJ5Lmh0bWw?oc=5)
+---
