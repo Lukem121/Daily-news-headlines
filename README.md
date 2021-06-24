@@ -506,3 +506,6 @@
 ### **Adams takes fragile lead in New York City Democratic mayoral primary, Sliwa wins GOP primary - CNBC**
 #### Wed, 23 Jun 2021 11:07:39 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigAFodHRwczovL3d3dy5jbmJjLmNvbS8yMDIxLzA2LzIzL2FkYW1zLXRha2VzLWZyYWdpbGUtbGVhZC1pbi1uZXcteW9yay1jaXR5LWRlbW9jcmF0aWMtbWF5b3JhbC1wcmltYXJ5LXNsaXdhLXdpbnMtZ29wLXByaW1hcnkuaHRtbNIBhAFodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wNi8yMy9hZGFtcy10YWtlcy1mcmFnaWxlLWxlYWQtaW4tbmV3LXlvcmstY2l0eS1kZW1vY3JhdGljLW1heW9yYWwtcHJpbWFyeS1zbGl3YS13aW5zLWdvcC1wcmltYXJ5Lmh0bWw?oc=5)
 ---
+### **Miami-Area Beachfront Condo Building Collapses, Killing at Least One - The Wall Street Journal**
+#### Thu, 24 Jun 2021 12:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvbWlhbWktYXJlYS1jb25kby1jb2xsYXBzZS1jYXVzZXMtbWFzc2l2ZS1lbWVyZ2VuY3ktcmVzcG9uc2UtMTE2MjQ1MzI0OTLSAQA?oc=5)
+---
