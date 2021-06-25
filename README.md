@@ -509,3 +509,6 @@
 ### **Miami-Area Beachfront Condo Building Collapses, Killing at Least One - The Wall Street Journal**
 #### Thu, 24 Jun 2021 12:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvbWlhbWktYXJlYS1jb25kby1jb2xsYXBzZS1jYXVzZXMtbWFzc2l2ZS1lbWVyZ2VuY3ktcmVzcG9uc2UtMTE2MjQ1MzI0OTLSAQA?oc=5)
 ---
+### **Before condo collapse, rising seas have long pressured Miami coastal properties - The Washington Post**
+#### Fri, 25 Jun 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9jbGltYXRlLWVudmlyb25tZW50LzIwMjEvMDYvMjUvcmlzaW5nLXNlYS1sZXZlbHMtY29uZG8tY29sbGFwc2Uv0gFuaHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL2NsaW1hdGUtZW52aXJvbm1lbnQvMjAyMS8wNi8yNS9yaXNpbmctc2VhLWxldmVscy1jb25kby1jb2xsYXBzZS8_b3V0cHV0VHlwZT1hbXA?oc=5)
+---
