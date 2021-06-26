@@ -512,3 +512,6 @@
 ### **Before condo collapse, rising seas have long pressured Miami coastal properties - The Washington Post**
 #### Fri, 25 Jun 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9jbGltYXRlLWVudmlyb25tZW50LzIwMjEvMDYvMjUvcmlzaW5nLXNlYS1sZXZlbHMtY29uZG8tY29sbGFwc2Uv0gFuaHR0cHM6Ly93d3cud2FzaGluZ3RvbnBvc3QuY29tL2NsaW1hdGUtZW52aXJvbm1lbnQvMjAyMS8wNi8yNS9yaXNpbmctc2VhLWxldmVscy1jb25kby1jb2xsYXBzZS8_b3V0cHV0VHlwZT1hbXA?oc=5)
 ---
+### **Live updates: Years before Florida building collapse, an engineer warned of ‘major structural damage’ to the condo - The Washington Post**
+#### Sat, 26 Jun 2021 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNi8yNi9mbG9yaWRhLWNvbmRvLWJ1aWxkaW5nLWNvbGxhcHNlLWxpdmUtdXBkYXRlcy_SAW1odHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uLzIwMjEvMDYvMjYvZmxvcmlkYS1jb25kby1idWlsZGluZy1jb2xsYXBzZS1saXZlLXVwZGF0ZXMvP291dHB1dFR5cGU9YW1w?oc=5)
+---
