@@ -515,3 +515,6 @@
 ### **Live updates: Years before Florida building collapse, an engineer warned of ‘major structural damage’ to the condo - The Washington Post**
 #### Sat, 26 Jun 2021 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8wNi8yNi9mbG9yaWRhLWNvbmRvLWJ1aWxkaW5nLWNvbGxhcHNlLWxpdmUtdXBkYXRlcy_SAW1odHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uLzIwMjEvMDYvMjYvZmxvcmlkYS1jb25kby1idWlsZGluZy1jb2xsYXBzZS1saXZlLXVwZGF0ZXMvP291dHB1dFR5cGU9YW1w?oc=5)
 ---
+### **Miami condo collapse: death toll rises to five as crews search pile for survivors - The Guardian**
+#### Sun, 27 Jun 2021 11:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMid2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzI3L21pYW1pLWNvbmRvLWNvbGxhcHNlLXN1cmZzaWRlLWNoYW1wbGFpbi10b3dlcnMtMjAxOC1yZXBvcnQtZGVhZC1taXNzaW5n0gF3aHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9qdW4vMjcvbWlhbWktY29uZG8tY29sbGFwc2Utc3VyZnNpZGUtY2hhbXBsYWluLXRvd2Vycy0yMDE4LXJlcG9ydC1kZWFkLW1pc3Npbmc?oc=5)
+---
