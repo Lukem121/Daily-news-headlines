@@ -518,3 +518,6 @@
 ### **Miami condo collapse: death toll rises to five as crews search pile for survivors - The Guardian**
 #### Sun, 27 Jun 2021 11:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMid2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzI3L21pYW1pLWNvbmRvLWNvbGxhcHNlLXN1cmZzaWRlLWNoYW1wbGFpbi10b3dlcnMtMjAxOC1yZXBvcnQtZGVhZC1taXNzaW5n0gF3aHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9qdW4vMjcvbWlhbWktY29uZG8tY29sbGFwc2Utc3VyZnNpZGUtY2hhbXBsYWluLXRvd2Vycy0yMDE4LXJlcG9ydC1kZWFkLW1pc3Npbmc?oc=5)
 ---
+### **Live Updates: Miami Building Collapse - The New York Times**
+#### Mon, 28 Jun 2021 13:19:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMS8wNi8yOC91cy9idWlsZGluZy1jb2xsYXBzZS1taWFtaS1iZWFjaNIBUWh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMS8wNi8yOC91cy9idWlsZGluZy1jb2xsYXBzZS1taWFtaS1iZWFjaC5hbXAuaHRtbA?oc=5)
+---
