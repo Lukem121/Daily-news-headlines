@@ -521,3 +521,6 @@
 ### **Live Updates: Miami Building Collapse - The New York Times**
 #### Mon, 28 Jun 2021 13:19:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMS8wNi8yOC91cy9idWlsZGluZy1jb2xsYXBzZS1taWFtaS1iZWFjaNIBUWh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMS8wNi8yOC91cy9idWlsZGluZy1jb2xsYXBzZS1taWFtaS1iZWFjaC5hbXAuaHRtbA?oc=5)
 ---
+### **Miami condo collapse prompts questions over role of climate change - The Guardian**
+#### Tue, 29 Jun 2021 08:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzI5L21pYW1pLWNvbmRvLWNvbGxhcHNlLXF1ZXN0aW9ucy1jbGltYXRlLWNoYW5nZdIBXWh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzI5L21pYW1pLWNvbmRvLWNvbGxhcHNlLXF1ZXN0aW9ucy1jbGltYXRlLWNoYW5nZQ?oc=5)
+---
