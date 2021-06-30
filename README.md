@@ -524,3 +524,6 @@
 ### **Miami condo collapse prompts questions over role of climate change - The Guardian**
 #### Tue, 29 Jun 2021 08:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzI5L21pYW1pLWNvbmRvLWNvbGxhcHNlLXF1ZXN0aW9ucy1jbGltYXRlLWNoYW5nZdIBXWh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVuLzI5L21pYW1pLWNvbmRvLWNvbGxhcHNlLXF1ZXN0aW9ucy1jbGltYXRlLWNoYW5nZQ?oc=5)
 ---
+### **The hope for survivors is 'very minor' after the Florida condo collapse as crews race to find 149 people - CNN **
+#### Wed, 30 Jun 2021 13:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8zMC91cy9taWFtaS1kYWRlLWJ1aWxkaW5nLWNvbGxhcHNlLXdlZG5lc2RheS9pbmRleC5odG1s0gFXaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNi8zMC91cy9taWFtaS1kYWRlLWJ1aWxkaW5nLWNvbGxhcHNlLXdlZG5lc2RheS9pbmRleC5odG1s?oc=5)
+---
