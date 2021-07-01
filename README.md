@@ -527,3 +527,6 @@
 ### **The hope for survivors is 'very minor' after the Florida condo collapse as crews race to find 149 people - CNN **
 #### Wed, 30 Jun 2021 13:13:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNi8zMC91cy9taWFtaS1kYWRlLWJ1aWxkaW5nLWNvbGxhcHNlLXdlZG5lc2RheS9pbmRleC5odG1s0gFXaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNi8zMC91cy9taWFtaS1kYWRlLWJ1aWxkaW5nLWNvbGxhcHNlLXdlZG5lc2RheS9pbmRleC5odG1s?oc=5)
 ---
+### **Top Trump Executive Allen Weisselberg Surrenders to Face Charges - The New York Times**
+#### Thu, 01 Jul 2021 10:24:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDcvMDEvbnlyZWdpb24vYWxsZW4td2Vpc3NlbGJlcmctY2hhcmdlZC10cnVtcC1vcmdhbml6YXRpb24uaHRtbNIBYWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDcvMDEvbnlyZWdpb24vYWxsZW4td2Vpc3NlbGJlcmctY2hhcmdlZC10cnVtcC1vcmdhbml6YXRpb24uYW1wLmh0bWw?oc=5)
+---
