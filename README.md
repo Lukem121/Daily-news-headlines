@@ -530,3 +530,6 @@
 ### **Top Trump Executive Allen Weisselberg Surrenders to Face Charges - The New York Times**
 #### Thu, 01 Jul 2021 10:24:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDcvMDEvbnlyZWdpb24vYWxsZW4td2Vpc3NlbGJlcmctY2hhcmdlZC10cnVtcC1vcmdhbml6YXRpb24uaHRtbNIBYWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDcvMDEvbnlyZWdpb24vYWxsZW4td2Vpc3NlbGJlcmctY2hhcmdlZC10cnVtcC1vcmdhbml6YXRpb24uYW1wLmh0bWw?oc=5)
 ---
+### **Donald Trump Jr. blasts Weisselberg indictment as 'banana republic stuff' - New York Post **
+#### Fri, 02 Jul 2021 01:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA3LzAxL3RydW1wLWpyLWJsYXN0cy1pbmRpY3RtZW50LWFzLWJhbmFuYS1yZXB1YmxpYy1zdHVmZi_SAVZodHRwczovL255cG9zdC5jb20vMjAyMS8wNy8wMS90cnVtcC1qci1ibGFzdHMtaW5kaWN0bWVudC1hcy1iYW5hbmEtcmVwdWJsaWMtc3R1ZmYvYW1wLw?oc=5)
+---
