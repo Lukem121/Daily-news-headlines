@@ -533,3 +533,6 @@
 ### **Donald Trump Jr. blasts Weisselberg indictment as 'banana republic stuff' - New York Post **
 #### Fri, 02 Jul 2021 01:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA3LzAxL3RydW1wLWpyLWJsYXN0cy1pbmRpY3RtZW50LWFzLWJhbmFuYS1yZXB1YmxpYy1zdHVmZi_SAVZodHRwczovL255cG9zdC5jb20vMjAyMS8wNy8wMS90cnVtcC1qci1ibGFzdHMtaW5kaWN0bWVudC1hcy1iYW5hbmEtcmVwdWJsaWMtc3R1ZmYvYW1wLw?oc=5)
 ---
+### **North Miami Beach condo evacuated after Surfside collapse audit - The Guardian**
+#### Sat, 03 Jul 2021 10:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVsLzAzL25vcnRoLW1pYW1pLWJlYWNoLWNvbmRvLWV2YWN1YXRlZC1zdXJmc2lkZS1jb2xsYXBzZS1hdWRpdNIBaWh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVsLzAzL25vcnRoLW1pYW1pLWJlYWNoLWNvbmRvLWV2YWN1YXRlZC1zdXJmc2lkZS1jb2xsYXBzZS1hdWRpdA?oc=5)
+---
