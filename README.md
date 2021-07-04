@@ -536,3 +536,6 @@
 ### **North Miami Beach condo evacuated after Surfside collapse audit - The Guardian**
 #### Sat, 03 Jul 2021 10:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVsLzAzL25vcnRoLW1pYW1pLWJlYWNoLWNvbmRvLWV2YWN1YXRlZC1zdXJmc2lkZS1jb2xsYXBzZS1hdWRpdNIBaWh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVsLzAzL25vcnRoLW1pYW1pLWJlYWNoLWNvbmRvLWV2YWN1YXRlZC1zdXJmc2lkZS1jb2xsYXBzZS1hdWRpdA?oc=5)
 ---
+### **Miami Beach condo building evacuated in abundance of caution after building damage found - Miami Herald**
+#### Sun, 04 Jul 2021 03:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lm1pYW1paGVyYWxkLmNvbS9uZXdzL2xvY2FsL2NvbW11bml0eS9taWFtaS1kYWRlL21pYW1pLWJlYWNoL2FydGljbGUyNTI1NjIxMjMuaHRtbNIBXWh0dHBzOi8vYW1wLm1pYW1paGVyYWxkLmNvbS9uZXdzL2xvY2FsL2NvbW11bml0eS9taWFtaS1kYWRlL21pYW1pLWJlYWNoL2FydGljbGUyNTI1NjIxMjMuaHRtbA?oc=5)
+---
