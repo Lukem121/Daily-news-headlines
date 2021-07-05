@@ -539,3 +539,6 @@
 ### **Miami Beach condo building evacuated in abundance of caution after building damage found - Miami Herald**
 #### Sun, 04 Jul 2021 03:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lm1pYW1paGVyYWxkLmNvbS9uZXdzL2xvY2FsL2NvbW11bml0eS9taWFtaS1kYWRlL21pYW1pLWJlYWNoL2FydGljbGUyNTI1NjIxMjMuaHRtbNIBXWh0dHBzOi8vYW1wLm1pYW1paGVyYWxkLmNvbS9uZXdzL2xvY2FsL2NvbW11bml0eS9taWFtaS1kYWRlL21pYW1pLWJlYWNoL2FydGljbGUyNTI1NjIxMjMuaHRtbA?oc=5)
 ---
+### **Miami condo demolition, Jeff Bezos steps down, Tropical Storm Elsa: 5 things to know Monday - USA TODAY**
+#### Mon, 05 Jul 2021 07:22:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzLzIwMjEvMDcvMDUvbWlhbWktY29uZG8tamVmZi1iZXpvcy10cm9waWNhbC1zdG9ybS1lbHNhLTUtdGhpbmdzLWtub3ctbW9uZGF5LzUzMjc1NDgwMDEv0gEnaHR0cHM6Ly9hbXAudXNhdG9kYXkuY29tL2FtcC83ODY0MDEzMDAy?oc=5)
+---
