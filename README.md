@@ -542,3 +542,6 @@
 ### **Miami condo demolition, Jeff Bezos steps down, Tropical Storm Elsa: 5 things to know Monday - USA TODAY**
 #### Mon, 05 Jul 2021 07:22:57 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3LnVzYXRvZGF5LmNvbS9zdG9yeS9uZXdzLzIwMjEvMDcvMDUvbWlhbWktY29uZG8tamVmZi1iZXpvcy10cm9waWNhbC1zdG9ybS1lbHNhLTUtdGhpbmdzLWtub3ctbW9uZGF5LzUzMjc1NDgwMDEv0gEnaHR0cHM6Ly9hbXAudXNhdG9kYXkuY29tL2FtcC83ODY0MDEzMDAy?oc=5)
 ---
+### **Tropical Storm Elsa gaining strength, lashing Florida Keys - WPLG Local 10**
+#### Tue, 06 Jul 2021 09:14:40 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmxvY2FsMTAuY29tL3dlYXRoZXIvMjAyMS8wNy8wNi90cm9waWNhbC1zdG9ybS1lbHNhLWJhY2stb3Zlci13YXRlci10YWtlcy1haW0tYXQtZmxvcmlkYS_SAQA?oc=5)
+---
