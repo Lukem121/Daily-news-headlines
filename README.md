@@ -545,3 +545,6 @@
 ### **Tropical Storm Elsa gaining strength, lashing Florida Keys - WPLG Local 10**
 #### Tue, 06 Jul 2021 09:14:40 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmxvY2FsMTAuY29tL3dlYXRoZXIvMjAyMS8wNy8wNi90cm9waWNhbC1zdG9ybS1lbHNhLWJhY2stb3Zlci13YXRlci10YWtlcy1haW0tYXQtZmxvcmlkYS_SAQA?oc=5)
 ---
+### **Haiti president Jovenel Moïse assassinated - The Guardian**
+#### Wed, 07 Jul 2021 10:48:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2p1bC8wNy9oYWl0aS1wcmVzaWRlbnQtam92ZW5lbC1tb2lzZS1yZXBvcnRlZGx5LWFzc2Fzc2luYXRlZNIBY2h0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2p1bC8wNy9oYWl0aS1wcmVzaWRlbnQtam92ZW5lbC1tb2lzZS1yZXBvcnRlZGx5LWFzc2Fzc2luYXRlZA?oc=5)
+---
