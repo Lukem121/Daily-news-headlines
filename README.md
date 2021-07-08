@@ -548,3 +548,6 @@
 ### **Haiti president Jovenel Moïse assassinated - The Guardian**
 #### Wed, 07 Jul 2021 10:48:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2p1bC8wNy9oYWl0aS1wcmVzaWRlbnQtam92ZW5lbC1tb2lzZS1yZXBvcnRlZGx5LWFzc2Fzc2luYXRlZNIBY2h0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2p1bC8wNy9oYWl0aS1wcmVzaWRlbnQtam92ZW5lbC1tb2lzZS1yZXBvcnRlZGx5LWFzc2Fzc2luYXRlZA?oc=5)
 ---
+### **Haiti's President Was Assassinated: What's The Latest? - NPR**
+#### Thu, 08 Jul 2021 11:59:40 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNy8wOC8xMDE0MTA1OTEyL3doYXQtd2Uta25vdy1hYm91dC10aGUtYXNzYXNzaW5hdGlvbi1vZi1oYWl0aXMtcHJlc2lkZW500gEA?oc=5)
+---
