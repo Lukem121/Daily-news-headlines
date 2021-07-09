@@ -551,3 +551,6 @@
 ### **Haiti's President Was Assassinated: What's The Latest? - NPR**
 #### Thu, 08 Jul 2021 11:59:40 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNy8wOC8xMDE0MTA1OTEyL3doYXQtd2Uta25vdy1hYm91dC10aGUtYXNzYXNzaW5hdGlvbi1vZi1oYWl0aXMtcHJlc2lkZW500gEA?oc=5)
 ---
+### **Several Suspects in Assassination of Haiti’s President Arrested in Taiwan’s Embassy - The Wall Street Journal**
+#### Fri, 09 Jul 2021 08:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvc2V2ZXJhbC1zdXNwZWN0cy1pbi1hc3Nhc3NpbmF0aW9uLW9mLWhhaXRpcy1wcmVzaWRlbnQtd2VyZS1hcnJlc3RlZC1pbi10YWl3YW5zLWVtYmFzc3ktMTE2MjU4MjAwNzLSAQA?oc=5)
+---
