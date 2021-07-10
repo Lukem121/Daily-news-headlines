@@ -554,3 +554,6 @@
 ### **Several Suspects in Assassination of Haiti’s President Arrested in Taiwan’s Embassy - The Wall Street Journal**
 #### Fri, 09 Jul 2021 08:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvc2V2ZXJhbC1zdXNwZWN0cy1pbi1hc3Nhc3NpbmF0aW9uLW9mLWhhaXRpcy1wcmVzaWRlbnQtd2VyZS1hcnJlc3RlZC1pbi10YWl3YW5zLWVtYmFzc3ktMTE2MjU4MjAwNzLSAQA?oc=5)
 ---
+### **Haiti on edge as conspiracy theories about President's assassination fill the vacuum - CNN **
+#### Sat, 10 Jul 2021 11:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8xMC9hbWVyaWNhcy9oYWl0aS1tb2lzZS1hc3Nhc3NpbmF0aW9uLXVuY2VydGFpbnR5LWludGwtaG5rLWNtZC9pbmRleC5odG1s0gFpaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNy8xMC9hbWVyaWNhcy9oYWl0aS1tb2lzZS1hc3Nhc3NpbmF0aW9uLXVuY2VydGFpbnR5LWludGwtaG5rLWNtZC9pbmRleC5odG1s?oc=5)
+---
