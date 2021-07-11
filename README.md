@@ -557,3 +557,6 @@
 ### **Haiti on edge as conspiracy theories about President's assassination fill the vacuum - CNN **
 #### Sat, 10 Jul 2021 11:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8xMC9hbWVyaWNhcy9oYWl0aS1tb2lzZS1hc3Nhc3NpbmF0aW9uLXVuY2VydGFpbnR5LWludGwtaG5rLWNtZC9pbmRleC5odG1s0gFpaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNy8xMC9hbWVyaWNhcy9oYWl0aS1tb2lzZS1hc3Nhc3NpbmF0aW9uLXVuY2VydGFpbnR5LWludGwtaG5rLWNtZC9pbmRleC5odG1s?oc=5)
 ---
+### **Haiti's wounded first lady rips ‘gutless’ killers - New York Post **
+#### Sun, 11 Jul 2021 03:27:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA3LzEwL2hhaXRpcy13b3VuZGVkLWZpcnN0LWxhZHktcmlwcy1ndXRsZXNzLWtpbGxlcnMv0gFRaHR0cHM6Ly9ueXBvc3QuY29tLzIwMjEvMDcvMTAvaGFpdGlzLXdvdW5kZWQtZmlyc3QtbGFkeS1yaXBzLWd1dGxlc3Mta2lsbGVycy9hbXAv?oc=5)
+---
