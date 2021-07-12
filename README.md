@@ -560,3 +560,6 @@
 ### **Haiti's wounded first lady rips ‘gutless’ killers - New York Post **
 #### Sun, 11 Jul 2021 03:27:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA3LzEwL2hhaXRpcy13b3VuZGVkLWZpcnN0LWxhZHktcmlwcy1ndXRsZXNzLWtpbGxlcnMv0gFRaHR0cHM6Ly9ueXBvc3QuY29tLzIwMjEvMDcvMTAvaGFpdGlzLXdvdW5kZWQtZmlyc3QtbGFkeS1yaXBzLWd1dGxlc3Mta2lsbGVycy9hbXAv?oc=5)
 ---
+### **'We are no longer afraid': Thousands of Cubans protest against conditions on island - NBC News**
+#### Mon, 12 Jul 2021 12:38:56 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvbGF0aW5vLy1hcmUtbm8tbG9uZ2VyLWFmcmFpZC10aG91c2FuZHMtY3ViYW5zLXByb3Rlc3QtY29uZGl0aW9ucy1pc2xhbmQtcmNuYTEzODbSASlodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9yY25hMTM4Ng?oc=5)
+---
