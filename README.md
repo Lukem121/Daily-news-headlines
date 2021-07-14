@@ -566,3 +566,6 @@
 ### **Governor vows to arrest Democrats who fled Texas to block voting restrictions - The Guardian**
 #### Tue, 13 Jul 2021 13:24:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvanVsLzEzL3RleGFzLWdvdmVybm9yLWFycmVzdC1kZW1vY3JhdC12b3RpbmctcmVzdHJpY3Rpb25zLWdyZWctYWJib3R00gFuaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9qdWwvMTMvdGV4YXMtZ292ZXJub3ItYXJyZXN0LWRlbW9jcmF0LXZvdGluZy1yZXN0cmljdGlvbnMtZ3JlZy1hYmJvdHQ?oc=5)
 ---
+### **Schumer launches long-shot bid for legal weed - POLITICO**
+#### Wed, 14 Jul 2021 10:00:36 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDcvMTQvc2NodW1lci1sYXVuY2hlcy1sb25nLXNob3QtYmlkLWZvci1sZWdhbC13ZWVkLTQ5OTU4NNIBYWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzA3LzE0L3NjaHVtZXItbGF1bmNoZXMtbG9uZy1zaG90LWJpZC1mb3ItbGVnYWwtd2VlZC00OTk1ODQ?oc=5)
+---
