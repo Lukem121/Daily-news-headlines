@@ -569,3 +569,6 @@
 ### **Schumer launches long-shot bid for legal weed - POLITICO**
 #### Wed, 14 Jul 2021 10:00:36 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDcvMTQvc2NodW1lci1sYXVuY2hlcy1sb25nLXNob3QtYmlkLWZvci1sZWdhbC13ZWVkLTQ5OTU4NNIBYWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9hbXAvbmV3cy8yMDIxLzA3LzE0L3NjaHVtZXItbGF1bmNoZXMtbG9uZy1zaG90LWJpZC1mb3ItbGVnYWwtd2VlZC00OTk1ODQ?oc=5)
 ---
+### **At least 6 killed in Germany as flooding caused by rainfall 'not seen in 100 years' hits Europe - CNN **
+#### Thu, 15 Jul 2021 11:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8xNS9ldXJvcGUvZ2VybWFueS1kZWF0aHMtc2V2ZXJlLWZsb29kaW5nLWludGwvaW5kZXguaHRtbNIBWGh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDcvMTUvZXVyb3BlL2dlcm1hbnktZGVhdGhzLXNldmVyZS1mbG9vZGluZy1pbnRsL2luZGV4Lmh0bWw?oc=5)
+---
