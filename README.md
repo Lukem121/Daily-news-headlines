@@ -572,3 +572,6 @@
 ### **At least 6 killed in Germany as flooding caused by rainfall 'not seen in 100 years' hits Europe - CNN **
 #### Thu, 15 Jul 2021 11:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8xNS9ldXJvcGUvZ2VybWFueS1kZWF0aHMtc2V2ZXJlLWZsb29kaW5nLWludGwvaW5kZXguaHRtbNIBWGh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDcvMTUvZXVyb3BlL2dlcm1hbnktZGVhdGhzLXNldmVyZS1mbG9vZGluZy1pbnRsL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Death toll from European floods passes 100 as receding waters reveal scope of devastation - The Washington Post**
+#### Fri, 16 Jul 2021 11:55:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzA3LzE2L2V1cm9wZS1mbG9vZGluZy1kZWF0aHMtZ2VybWFueS1iZWxnaXVtL9IBZmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzA3LzE2L2V1cm9wZS1mbG9vZGluZy1kZWF0aHMtZ2VybWFueS1iZWxnaXVtLz9vdXRwdXRUeXBlPWFtcA?oc=5)
+---
