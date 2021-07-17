@@ -575,3 +575,6 @@
 ### **Death toll from European floods passes 100 as receding waters reveal scope of devastation - The Washington Post**
 #### Fri, 16 Jul 2021 11:55:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiV2h0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzA3LzE2L2V1cm9wZS1mbG9vZGluZy1kZWF0aHMtZ2VybWFueS1iZWxnaXVtL9IBZmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzA3LzE2L2V1cm9wZS1mbG9vZGluZy1kZWF0aHMtZ2VybWFueS1iZWxnaXVtLz9vdXRwdXRUeXBlPWFtcA?oc=5)
 ---
+### **Photos show disastrous flooding in western Europe - CNBC**
+#### Sat, 17 Jul 2021 07:36:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDcvMTcvcGhvdG9zLXNob3ctZGlzYXN0cm91cy1mbG9vZGluZy1pbi13ZXN0ZXJuLWV1cm9wZS5odG1s0gFaaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDcvMTcvcGhvdG9zLXNob3ctZGlzYXN0cm91cy1mbG9vZGluZy1pbi13ZXN0ZXJuLWV1cm9wZS5odG1s?oc=5)
+---
