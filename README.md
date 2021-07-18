@@ -578,3 +578,6 @@
 ### **Photos show disastrous flooding in western Europe - CNBC**
 #### Sat, 17 Jul 2021 07:36:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDcvMTcvcGhvdG9zLXNob3ctZGlzYXN0cm91cy1mbG9vZGluZy1pbi13ZXN0ZXJuLWV1cm9wZS5odG1s0gFaaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDcvMTcvcGhvdG9zLXNob3ctZGlzYXN0cm91cy1mbG9vZGluZy1pbi13ZXN0ZXJuLWV1cm9wZS5odG1s?oc=5)
 ---
+### **Europe flooding toll over 180 as rescuers dig deeper - Associated Press**
+#### Sun, 18 Jul 2021 11:52:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL2V1cm9wZS1mbG9vZHMtN2RkYjExMmYwMzRkMTA5NzNiNzY2ZGMwMjhlY2E4OGXSAQA?oc=5)
+---
