@@ -581,3 +581,6 @@
 ### **Europe flooding toll over 180 as rescuers dig deeper - Associated Press**
 #### Sun, 18 Jul 2021 11:52:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL2V1cm9wZS1mbG9vZHMtN2RkYjExMmYwMzRkMTA5NzNiNzY2ZGMwMjhlY2E4OGXSAQA?oc=5)
 ---
+### **US blames China for hacks, opening new front in cyber offensive - CNN **
+#### Mon, 19 Jul 2021 12:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8xOS9wb2xpdGljcy91cy1jaGluYS1jeWJlci1vZmZlbnNpdmUvaW5kZXguaHRtbNIBT2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDcvMTkvcG9saXRpY3MvdXMtY2hpbmEtY3liZXItb2ZmZW5zaXZlL2luZGV4Lmh0bWw?oc=5)
+---
