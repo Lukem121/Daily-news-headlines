@@ -584,3 +584,6 @@
 ### **US blames China for hacks, opening new front in cyber offensive - CNN **
 #### Mon, 19 Jul 2021 12:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8xOS9wb2xpdGljcy91cy1jaGluYS1jeWJlci1vZmZlbnNpdmUvaW5kZXguaHRtbNIBT2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDcvMTkvcG9saXRpY3MvdXMtY2hpbmEtY3liZXItb2ZmZW5zaXZlL2luZGV4Lmh0bWw?oc=5)
 ---
+### **If Biden Burns AOC on $4 Trillion Deal, He'll Pay the Price - The Daily Beast**
+#### Tue, 20 Jul 2021 08:56:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL2lmLWJpZGVuLWJ1cm5zLWFvYy1vbi1kb2xsYXI0LXRyaWxsaW9uLWRlYWwtaGVsbC1wYXktdGhlLXByaWNl0gEA?oc=5)
+---
