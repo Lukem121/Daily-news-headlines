@@ -587,3 +587,6 @@
 ### **If Biden Burns AOC on $4 Trillion Deal, He'll Pay the Price - The Daily Beast**
 #### Tue, 20 Jul 2021 08:56:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LnRoZWRhaWx5YmVhc3QuY29tL2lmLWJpZGVuLWJ1cm5zLWFvYy1vbi1kb2xsYXI0LXRyaWxsaW9uLWRlYWwtaGVsbC1wYXktdGhlLXByaWNl0gEA?oc=5)
 ---
+### **Rescue efforts launched after record floods in central China displace 1.2 million - The Washington Post**
+#### Wed, 21 Jul 2021 12:57:52 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzA3LzIxL2NoaW5hLWZsb29kcy16aGVuZ3pob3Utdm9sdW50ZWVycy_SAQA?oc=5)
+---
