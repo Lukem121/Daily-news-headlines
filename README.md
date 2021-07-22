@@ -590,3 +590,6 @@
 ### **Rescue efforts launched after record floods in central China displace 1.2 million - The Washington Post**
 #### Wed, 21 Jul 2021 12:57:52 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzA3LzIxL2NoaW5hLWZsb29kcy16aGVuZ3pob3Utdm9sdW50ZWVycy_SAQA?oc=5)
 ---
+### **COVID-19, the economy and voting rights: 5 takeaways from Biden's CNN town hall in Ohio - USA TODAY**
+#### Thu, 22 Jul 2021 02:56:29 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzA3LzIxL2NvdmlkLTE5LWluZmxhdGlvbi1maWxpYnVzdGVyLTUtdGFrZWF3YXlzLWJpZGVuLWNubi10b3duLWhhbGwvODA1MDcxMjAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzgwNTA3MTIwMDI?oc=5)
+---
