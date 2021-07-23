@@ -593,3 +593,6 @@
 ### **COVID-19, the economy and voting rights: 5 takeaways from Biden's CNN town hall in Ohio - USA TODAY**
 #### Thu, 22 Jul 2021 02:56:29 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzA3LzIxL2NvdmlkLTE5LWluZmxhdGlvbi1maWxpYnVzdGVyLTUtdGFrZWF3YXlzLWJpZGVuLWNubi10b3duLWhhbGwvODA1MDcxMjAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzgwNTA3MTIwMDI?oc=5)
 ---
+### **FBI says it got more than 4,500 tips on Kavanaugh, providing 'relevant' ones to Trump White House - CNN **
+#### Fri, 23 Jul 2021 02:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yMi9wb2xpdGljcy9mYmkta2F2YW5hdWdoLWZvcmQtaW52ZXN0aWdhdGlvbi9pbmRleC5odG1s0gFXaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNy8yMi9wb2xpdGljcy9mYmkta2F2YW5hdWdoLWZvcmQtaW52ZXN0aWdhdGlvbi9pbmRleC5odG1s?oc=5)
+---
