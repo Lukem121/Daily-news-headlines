@@ -596,3 +596,6 @@
 ### **FBI says it got more than 4,500 tips on Kavanaugh, providing 'relevant' ones to Trump White House - CNN **
 #### Fri, 23 Jul 2021 02:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yMi9wb2xpdGljcy9mYmkta2F2YW5hdWdoLWZvcmQtaW52ZXN0aWdhdGlvbi9pbmRleC5odG1s0gFXaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wNy8yMi9wb2xpdGljcy9mYmkta2F2YW5hdWdoLWZvcmQtaW52ZXN0aWdhdGlvbi9pbmRleC5odG1s?oc=5)
 ---
+### **Miami-Dade police to take over search efforts at the Surfside condo building collapse site - CNN**
+#### Sat, 24 Jul 2021 09:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yNC91cy9zdXJmc2lkZS1zZWFyY2gtcG9saWNlLXRha2VvdmVyL2luZGV4Lmh0bWzSAVBodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA3LzI0L3VzL3N1cmZzaWRlLXNlYXJjaC1wb2xpY2UtdGFrZW92ZXIvaW5kZXguaHRtbA?oc=5)
+---
