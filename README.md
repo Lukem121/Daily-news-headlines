@@ -599,3 +599,6 @@
 ### **Miami-Dade police to take over search efforts at the Surfside condo building collapse site - CNN**
 #### Sat, 24 Jul 2021 09:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yNC91cy9zdXJmc2lkZS1zZWFyY2gtcG9saWNlLXRha2VvdmVyL2luZGV4Lmh0bWzSAVBodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA3LzI0L3VzL3N1cmZzaWRlLXNlYXJjaC1wb2xpY2UtdGFrZW92ZXIvaW5kZXguaHRtbA?oc=5)
 ---
+### **'Sore loser' Trump reaps fruits of election lies in Arizona - CNN**
+#### Sun, 25 Jul 2021 10:21:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yNS9wb2xpdGljcy9kb25hbGQtdHJ1bXAtYXJpem9uYS1hdWRpdC1mcmF1ZC1saWVzLWVsZWN0aW9uL2luZGV4Lmh0bWzSAWVodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA3LzI1L3BvbGl0aWNzL2RvbmFsZC10cnVtcC1hcml6b25hLWF1ZGl0LWZyYXVkLWxpZXMtZWxlY3Rpb24vaW5kZXguaHRtbA?oc=5)
+---
