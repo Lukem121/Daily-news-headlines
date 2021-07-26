@@ -602,3 +602,6 @@
 ### **'Sore loser' Trump reaps fruits of election lies in Arizona - CNN**
 #### Sun, 25 Jul 2021 10:21:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yNS9wb2xpdGljcy9kb25hbGQtdHJ1bXAtYXJpem9uYS1hdWRpdC1mcmF1ZC1saWVzLWVsZWN0aW9uL2luZGV4Lmh0bWzSAWVodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA3LzI1L3BvbGl0aWNzL2RvbmFsZC10cnVtcC1hcml6b25hLWF1ZGl0LWZyYXVkLWxpZXMtZWxlY3Rpb24vaW5kZXguaHRtbA?oc=5)
 ---
+### **Growing group of GOP members wants McCarthy to punish Kinzinger and Cheney for joining January 6 committee - CNN**
+#### Mon, 26 Jul 2021 06:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yNS9wb2xpdGljcy9yZXB1YmxpY2Fucy1tY2NhcnRoeS1raW56aW5nZXItY2hlbmV5LWphbnVhcnktNi1jb21taXR0ZWUvaW5kZXguaHRtbNIBcGh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDcvMjUvcG9saXRpY3MvcmVwdWJsaWNhbnMtbWNjYXJ0aHkta2luemluZ2VyLWNoZW5leS1qYW51YXJ5LTYtY29tbWl0dGVlL2luZGV4Lmh0bWw?oc=5)
+---
