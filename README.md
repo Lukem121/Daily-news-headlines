@@ -605,3 +605,6 @@
 ### **Growing group of GOP members wants McCarthy to punish Kinzinger and Cheney for joining January 6 committee - CNN**
 #### Mon, 26 Jul 2021 06:03:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yNS9wb2xpdGljcy9yZXB1YmxpY2Fucy1tY2NhcnRoeS1raW56aW5nZXItY2hlbmV5LWphbnVhcnktNi1jb21taXR0ZWUvaW5kZXguaHRtbNIBcGh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDcvMjUvcG9saXRpY3MvcmVwdWJsaWNhbnMtbWNjYXJ0aHkta2luemluZ2VyLWNoZW5leS1qYW51YXJ5LTYtY29tbWl0dGVlL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Team USA gymnastics star Simone Biles pulls out of Tokyo Olympics team final - USA TODAY**
+#### Tue, 27 Jul 2021 11:51:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3Rvcnkvc3BvcnRzL29seW1waWNzLzIwMjEvMDcvMjcvc2ltb25lLWJpbGVzLXB1bGxzLW91dC10b2t5by1vbHltcGljcy1neW1uYXN0aWNzLXRlYW0tZmluYWwvNTM4MzI4NjAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzUzODMyODYwMDE?oc=5)
+---
