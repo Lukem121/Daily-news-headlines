@@ -608,3 +608,6 @@
 ### **Team USA gymnastics star Simone Biles pulls out of Tokyo Olympics team final - USA TODAY**
 #### Tue, 27 Jul 2021 11:51:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3Rvcnkvc3BvcnRzL29seW1waWNzLzIwMjEvMDcvMjcvc2ltb25lLWJpbGVzLXB1bGxzLW91dC10b2t5by1vbHltcGljcy1neW1uYXN0aWNzLXRlYW0tZmluYWwvNTM4MzI4NjAwMS_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzUzODMyODYwMDE?oc=5)
 ---
+### **Biden Is Considering A Vaccine Or Testing Mandate For Federal Workers - NPR**
+#### Wed, 28 Jul 2021 00:54:18 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNy8yNy8xMDIxNTAzOTk5L2JpZGVuLWlzLWNvbnNpZGVyaW5nLWEtdmFjY2luZS1vci10ZXN0aW5nLW1hbmRhdGUtZm9yLWZlZGVyYWwtd29ya2Vyc9IBAA?oc=5)
+---
