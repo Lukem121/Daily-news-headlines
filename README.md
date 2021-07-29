@@ -611,3 +611,6 @@
 ### **Biden Is Considering A Vaccine Or Testing Mandate For Federal Workers - NPR**
 #### Wed, 28 Jul 2021 00:54:18 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wNy8yNy8xMDIxNTAzOTk5L2JpZGVuLWlzLWNvbnNpZGVyaW5nLWEtdmFjY2luZS1vci10ZXN0aW5nLW1hbmRhdGUtZm9yLWZlZGVyYWwtd29ya2Vyc9IBAA?oc=5)
 ---
+### **Some people in Missouri are getting vaccinated against Covid-19 in secret, doctor says. They fear backlash from loved ones who oppose the vaccines - CNN**
+#### Thu, 29 Jul 2021 10:29:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yOS9oZWFsdGgvdmFjY2luZXMtaW4tc2VjcmV0LW1pc3NvdXJpL2luZGV4Lmh0bWzSAVBodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA3LzI5L2hlYWx0aC92YWNjaW5lcy1pbi1zZWNyZXQtbWlzc291cmkvaW5kZXguaHRtbA?oc=5)
+---
