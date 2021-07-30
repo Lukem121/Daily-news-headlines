@@ -614,3 +614,6 @@
 ### **Some people in Missouri are getting vaccinated against Covid-19 in secret, doctor says. They fear backlash from loved ones who oppose the vaccines - CNN**
 #### Thu, 29 Jul 2021 10:29:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wNy8yOS9oZWFsdGgvdmFjY2luZXMtaW4tc2VjcmV0LW1pc3NvdXJpL2luZGV4Lmh0bWzSAVBodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA3LzI5L2hlYWx0aC92YWNjaW5lcy1pbi1zZWNyZXQtbWlzc291cmkvaW5kZXguaHRtbA?oc=5)
 ---
+### **Pelosi and Sanders brace for Democratic upheaval over Biden agenda - POLITICO**
+#### Fri, 30 Jul 2021 08:30:23 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDcvMzAvYmlkZW4tcmVjb25jaWxpYXRpb24tcGFja2FnZS1wcm9ncmVzc2l2ZXMtNTAxNjMy0gFdaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDcvMzAvYmlkZW4tcmVjb25jaWxpYXRpb24tcGFja2FnZS1wcm9ncmVzc2l2ZXMtNTAxNjMy?oc=5)
+---
