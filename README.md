@@ -617,3 +617,6 @@
 ### **Pelosi and Sanders brace for Democratic upheaval over Biden agenda - POLITICO**
 #### Fri, 30 Jul 2021 08:30:23 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDcvMzAvYmlkZW4tcmVjb25jaWxpYXRpb24tcGFja2FnZS1wcm9ncmVzc2l2ZXMtNTAxNjMy0gFdaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDcvMzAvYmlkZW4tcmVjb25jaWxpYXRpb24tcGFja2FnZS1wcm9ncmVzc2l2ZXMtNTAxNjMy?oc=5)
 ---
+### **'Down the drain’: Millions face eviction after Biden lets protections expire - POLITICO**
+#### Sat, 31 Jul 2021 11:00:13 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDcvMzEvZXZpY3Rpb24tbW9yYXRvcml1bS1yZW50YWwtYXNzaXN0YW5jZS1iaWRlbi01MDE5MTfSAV9odHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wNy8zMS9ldmljdGlvbi1tb3JhdG9yaXVtLXJlbnRhbC1hc3Npc3RhbmNlLWJpZGVuLTUwMTkxNw?oc=5)
+---
