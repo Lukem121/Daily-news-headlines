@@ -620,3 +620,6 @@
 ### **'Down the drain’: Millions face eviction after Biden lets protections expire - POLITICO**
 #### Sat, 31 Jul 2021 11:00:13 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDcvMzEvZXZpY3Rpb24tbW9yYXRvcml1bS1yZW50YWwtYXNzaXN0YW5jZS1iaWRlbi01MDE5MTfSAV9odHRwczovL3d3dy5wb2xpdGljby5jb20vYW1wL25ld3MvMjAyMS8wNy8zMS9ldmljdGlvbi1tb3JhdG9yaXVtLXJlbnRhbC1hc3Npc3RhbmNlLWJpZGVuLTUwMTkxNw?oc=5)
 ---
+### **Trump lashes out after release of election overturning bid docs - Business Insider**
+#### Sun, 01 Aug 2021 10:13:23 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vdHJ1bXAtbGFzaGVzLW91dC1hZnRlci1yZWxlYXNlLW9mLWVsZWN0aW9uLW92ZXJ0dXJuaW5nLWJpZC1kb2NzLTIwMjEtONIBamh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vdHJ1bXAtbGFzaGVzLW91dC1hZnRlci1yZWxlYXNlLW9mLWVsZWN0aW9uLW92ZXJ0dXJuaW5nLWJpZC1kb2NzLTIwMjEtOD9hbXA?oc=5)
+---
