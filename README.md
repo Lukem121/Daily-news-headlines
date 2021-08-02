@@ -623,3 +623,6 @@
 ### **Trump lashes out after release of election overturning bid docs - Business Insider**
 #### Sun, 01 Aug 2021 10:13:23 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vdHJ1bXAtbGFzaGVzLW91dC1hZnRlci1yZWxlYXNlLW9mLWVsZWN0aW9uLW92ZXJ0dXJuaW5nLWJpZC1kb2NzLTIwMjEtONIBamh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vdHJ1bXAtbGFzaGVzLW91dC1hZnRlci1yZWxlYXNlLW9mLWVsZWN0aW9uLW92ZXJ0dXJuaW5nLWJpZC1kb2NzLTIwMjEtOD9hbXA?oc=5)
 ---
+### **It's in and it's big: Senate unveils $1T infrastructure bill - Associated Press**
+#### Mon, 02 Aug 2021 04:37:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiM2h0dHBzOi8vYXBuZXdzLmNvbS80NzRiYzE0OWMwZDk4NjdlMGI2NjM2YmY3Njk1ZWE4NdIBAA?oc=5)
+---
