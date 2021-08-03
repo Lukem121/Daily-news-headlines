@@ -626,3 +626,6 @@
 ### **It's in and it's big: Senate unveils $1T infrastructure bill - Associated Press**
 #### Mon, 02 Aug 2021 04:37:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiM2h0dHBzOi8vYXBuZXdzLmNvbS80NzRiYzE0OWMwZDk4NjdlMGI2NjM2YmY3Njk1ZWE4NdIBAA?oc=5)
 ---
+### **Liberal Democrats erupt in anger at Biden - The Washington Post**
+#### Tue, 03 Aug 2021 00:49:47 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigAFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vcG9saXRpY3MvbGliZXJhbC1kZW1vY3JhdHMtYmlkZW4tYW5nZXIvMjAyMS8wOC8wMi9kMDQ4ZmVmYS1mMzlkLTExZWItYTQ5Yi1kOTZmMmRhYzA5NDJfc3RvcnkuaHRtbNIBAA?oc=5)
+---
