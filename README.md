@@ -632,3 +632,6 @@
 ### **Carl Heastie: The Man Who Would Oversee Cuomo’s Impeachment - The New York Times**
 #### Wed, 04 Aug 2021 09:00:17 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDgvMDQvdXMvcG9saXRpY3MvY2FybC1oZWFzdGllLWN1b21vLWltcGVhY2htZW50Lmh0bWzSAVZodHRwczovL3d3dy5ueXRpbWVzLmNvbS8yMDIxLzA4LzA0L3VzL3BvbGl0aWNzL2NhcmwtaGVhc3RpZS1jdW9tby1pbXBlYWNobWVudC5hbXAuaHRtbA?oc=5)
 ---
+### **‘The Pied Piper leading us off a cliff’: Florida governor condemned as Covid surges - The Guardian**
+#### Thu, 05 Aug 2021 09:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvYXVnLzA1L3Jvbi1kZXNhbnRpcy1mbG9yaWRhLWdvdmVybm9yLWNvdmlkLWNvcm9uYXZpcnVz0gFfaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9hdWcvMDUvcm9uLWRlc2FudGlzLWZsb3JpZGEtZ292ZXJub3ItY292aWQtY29yb25hdmlydXM?oc=5)
+---
