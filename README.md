@@ -635,3 +635,6 @@
 ### **‘The Pied Piper leading us off a cliff’: Florida governor condemned as Covid surges - The Guardian**
 #### Thu, 05 Aug 2021 09:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvYXVnLzA1L3Jvbi1kZXNhbnRpcy1mbG9yaWRhLWdvdmVybm9yLWNvdmlkLWNvcm9uYXZpcnVz0gFfaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9hdWcvMDUvcm9uLWRlc2FudGlzLWZsb3JpZGEtZ292ZXJub3ItY292aWQtY29yb25hdmlydXM?oc=5)
 ---
+### **DeSantis Threatens School Funds If Florida Districts Require Masks - NPR**
+#### Fri, 06 Aug 2021 10:00:55 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOC8wNi8xMDI1MTkyNzQ2L3NvbWUtZmxvcmlkYS1zY2hvb2wtZGlzdHJpY3RzLXdpbGwtcmVxdWlyZS1tYXNrcy10aGUtZ292ZXJub3ItbWF5LWN1dC10aGVpci1mdW5k0gEA?oc=5)
+---
