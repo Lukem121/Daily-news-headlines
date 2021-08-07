@@ -638,3 +638,6 @@
 ### **DeSantis Threatens School Funds If Florida Districts Require Masks - NPR**
 #### Fri, 06 Aug 2021 10:00:55 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOC8wNi8xMDI1MTkyNzQ2L3NvbWUtZmxvcmlkYS1zY2hvb2wtZGlzdHJpY3RzLXdpbGwtcmVxdWlyZS1tYXNrcy10aGUtZ292ZXJub3ItbWF5LWN1dC10aGVpci1mdW5k0gEA?oc=5)
 ---
+### **Yes, children can be affected by Covid-19. Here's why doctors say they need to be protected - CNN**
+#### Sat, 07 Aug 2021 12:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8wNy9oZWFsdGgvY2hpbGRyZW4tY292aWQtMTktcHJvdGVjdGlvbi9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOC8wNy9oZWFsdGgvY2hpbGRyZW4tY292aWQtMTktcHJvdGVjdGlvbi9pbmRleC5odG1s?oc=5)
+---
