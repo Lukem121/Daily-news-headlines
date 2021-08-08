@@ -641,3 +641,6 @@
 ### **Yes, children can be affected by Covid-19. Here's why doctors say they need to be protected - CNN**
 #### Sat, 07 Aug 2021 12:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8wNy9oZWFsdGgvY2hpbGRyZW4tY292aWQtMTktcHJvdGVjdGlvbi9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOC8wNy9oZWFsdGgvY2hpbGRyZW4tY292aWQtMTktcHJvdGVjdGlvbi9pbmRleC5odG1s?oc=5)
 ---
+### **Two CPD Officers Shot, One Killed, In West Englewood - CBS Chicago**
+#### Sun, 08 Aug 2021 06:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vY2hpY2Fnby5jYnNsb2NhbC5jb20vMjAyMS8wOC8wOC9jaGljYWdvLXBvbGljZS1vZmZpY2Vycy1zaG90LXdlc3QtZW5nbGV3b29kLTYzcmQtYmVsbC_SAWJodHRwczovL2NoaWNhZ28uY2JzbG9jYWwuY29tLzIwMjEvMDgvMDgvY2hpY2Fnby1wb2xpY2Utb2ZmaWNlcnMtc2hvdC13ZXN0LWVuZ2xld29vZC02M3JkLWJlbGwvP2FtcA?oc=5)
+---
