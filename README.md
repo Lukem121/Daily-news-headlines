@@ -644,3 +644,6 @@
 ### **Two CPD Officers Shot, One Killed, In West Englewood - CBS Chicago**
 #### Sun, 08 Aug 2021 06:30:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXmh0dHBzOi8vY2hpY2Fnby5jYnNsb2NhbC5jb20vMjAyMS8wOC8wOC9jaGljYWdvLXBvbGljZS1vZmZpY2Vycy1zaG90LXdlc3QtZW5nbGV3b29kLTYzcmQtYmVsbC_SAWJodHRwczovL2NoaWNhZ28uY2JzbG9jYWwuY29tLzIwMjEvMDgvMDgvY2hpY2Fnby1wb2xpY2Utb2ZmaWNlcnMtc2hvdC13ZXN0LWVuZ2xld29vZC02M3JkLWJlbGwvP2FtcA?oc=5)
 ---
+### **First Thing: Major climate changes inevitable and irreversible, says IPCC in starkest warning yet - The Guardian**
+#### Mon, 09 Aug 2021 11:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL3d3dy50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8wOS9maXJzdC10aGluZy1tYWpvci1jbGltYXRlLWNoYW5nZXMtaW5ldml0YWJsZS1hbmQtaXJyZXZlcnNpYmxlLXNheXMtaXBjYy1pbi1zdGFya2VzdC13YXJuaW5nLXlldNIBjwFodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8wOS9maXJzdC10aGluZy1tYWpvci1jbGltYXRlLWNoYW5nZXMtaW5ldml0YWJsZS1hbmQtaXJyZXZlcnNpYmxlLXNheXMtaXBjYy1pbi1zdGFya2VzdC13YXJuaW5nLXlldA?oc=5)
+---
