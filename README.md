@@ -647,3 +647,6 @@
 ### **First Thing: Major climate changes inevitable and irreversible, says IPCC in starkest warning yet - The Guardian**
 #### Mon, 09 Aug 2021 11:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL3d3dy50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8wOS9maXJzdC10aGluZy1tYWpvci1jbGltYXRlLWNoYW5nZXMtaW5ldml0YWJsZS1hbmQtaXJyZXZlcnNpYmxlLXNheXMtaXBjYy1pbi1zdGFya2VzdC13YXJuaW5nLXlldNIBjwFodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8wOS9maXJzdC10aGluZy1tYWpvci1jbGltYXRlLWNoYW5nZXMtaW5ldml0YWJsZS1hbmQtaXJyZXZlcnNpYmxlLXNheXMtaXBjYy1pbi1zdGFya2VzdC13YXJuaW5nLXlldA?oc=5)
 ---
+### **Senate set to pass $1 trillion bipartisan infrastructure bill as Democrats move ahead with economic plan - CNBC**
+#### Tue, 10 Aug 2021 11:59:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDgvMTAvc2VuYXRlLXRvLXBhc3MtYmlwYXJ0aXNhbi1pbmZyYXN0cnVjdHVyZS1iaWxsLmh0bWzSAVZodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wOC8xMC9zZW5hdGUtdG8tcGFzcy1iaXBhcnRpc2FuLWluZnJhc3RydWN0dXJlLWJpbGwuaHRtbA?oc=5)
+---
