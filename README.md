@@ -650,3 +650,6 @@
 ### **Senate set to pass $1 trillion bipartisan infrastructure bill as Democrats move ahead with economic plan - CNBC**
 #### Tue, 10 Aug 2021 11:59:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDgvMTAvc2VuYXRlLXRvLXBhc3MtYmlwYXJ0aXNhbi1pbmZyYXN0cnVjdHVyZS1iaWxsLmh0bWzSAVZodHRwczovL3d3dy5jbmJjLmNvbS9hbXAvMjAyMS8wOC8xMC9zZW5hdGUtdG8tcGFzcy1iaXBhcnRpc2FuLWluZnJhc3RydWN0dXJlLWJpbGwuaHRtbA?oc=5)
 ---
+### **Senate Republicans block effort by Democrats to advance voting and election bill - CNN**
+#### Wed, 11 Aug 2021 12:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8xMS9wb2xpdGljcy92b3RpbmctcmlnaHQtYmlsbC1ibG9ja2VkLXJlcHVibGljYW5zL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA4LzExL3BvbGl0aWNzL3ZvdGluZy1yaWdodC1iaWxsLWJsb2NrZWQtcmVwdWJsaWNhbnMvaW5kZXguaHRtbA?oc=5)
+---
