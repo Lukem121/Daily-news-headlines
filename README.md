@@ -653,3 +653,6 @@
 ### **Senate Republicans block effort by Democrats to advance voting and election bill - CNN**
 #### Wed, 11 Aug 2021 12:04:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8xMS9wb2xpdGljcy92b3RpbmctcmlnaHQtYmlsbC1ibG9ja2VkLXJlcHVibGljYW5zL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA4LzExL3BvbGl0aWNzL3ZvdGluZy1yaWdodC1iaWxsLWJsb2NrZWQtcmVwdWJsaWNhbnMvaW5kZXguaHRtbA?oc=5)
 ---
+### **Some Afghans blame neighboring Pakistan for Taliban gains - Associated Press**
+#### Thu, 12 Aug 2021 06:15:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3JlbGlnaW9uLXBha2lzdGFuLXRhbGliYW4tYjYzMDg5MjMzOTVjZDY5NDJiNjk4YTc0ODcyOGQxMWTSAQA?oc=5)
+---
