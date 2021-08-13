@@ -656,3 +656,6 @@
 ### **Some Afghans blame neighboring Pakistan for Taliban gains - Associated Press**
 #### Thu, 12 Aug 2021 06:15:53 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL3JlbGlnaW9uLXBha2lzdGFuLXRhbGliYW4tYjYzMDg5MjMzOTVjZDY5NDJiNjk4YTc0ODcyOGQxMWTSAQA?oc=5)
 ---
+### **First Thing: Afghanistan likened to fall of Saigon amid advance by Taliban - The Guardian**
+#### Fri, 13 Aug 2021 12:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvYXVnLzEzL2ZpcnN0LXRoaW5nLWFmZ2hhbmlzdGFuLWxpa2VuZWQtdG8tZmFsbC1vZi1zYWlnb24tYW1pZC1hZHZhbmNlLWJ5LXRhbGliYW7SAXlodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8xMy9maXJzdC10aGluZy1hZmdoYW5pc3Rhbi1saWtlbmVkLXRvLWZhbGwtb2Ytc2FpZ29uLWFtaWQtYWR2YW5jZS1ieS10YWxpYmFu?oc=5)
+---
