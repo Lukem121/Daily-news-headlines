@@ -662,3 +662,6 @@
 ### **Taliban's Afghanistan advance tests Biden's 'America is back' foreign policy promise - USA TODAY**
 #### Sat, 14 Aug 2021 10:01:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzA4LzE0L3RhbGliYW5zLWFmZ2hhbmlzdGFuLWFkdmFuY2UtdGVzdHMtYmlkZW5zLWFtZXJpY2EtYmFjay1wb2xpY3kvODEyMTA0MDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzgxMjEwNDAwMDI?oc=5)
 ---
+### **Taliban and Afghan government in talks as the militant group surrounds the capital of Kabul - CNN**
+#### Sun, 15 Aug 2021 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8xNS9hc2lhL2FmZ2hhbmlzdGFuLXRhbGliYW4tYWR2YW5jZXMta2FidWwtaW50bC9pbmRleC5odG1s0gFaaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOC8xNS9hc2lhL2FmZ2hhbmlzdGFuLXRhbGliYW4tYWR2YW5jZXMta2FidWwtaW50bC9pbmRleC5odG1s?oc=5)
+---
