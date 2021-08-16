@@ -665,3 +665,6 @@
 ### **Taliban and Afghan government in talks as the militant group surrounds the capital of Kabul - CNN**
 #### Sun, 15 Aug 2021 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8xNS9hc2lhL2FmZ2hhbmlzdGFuLXRhbGliYW4tYWR2YW5jZXMta2FidWwtaW50bC9pbmRleC5odG1s0gFaaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOC8xNS9hc2lhL2FmZ2hhbmlzdGFuLXRhbGliYW4tYWR2YW5jZXMta2FidWwtaW50bC9pbmRleC5odG1s?oc=5)
 ---
+### **Airlines avoid Afghan airspace as Kabul airport closes to commercial flights - CNN**
+#### Mon, 16 Aug 2021 13:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8xNi9idXNpbmVzcy91bml0ZWQtZW1pcmF0ZXMtdmlyZ2luLWFpcmxpbmVzLWFmZ2hhbmlzdGFuLWludGwtaG5rL2luZGV4Lmh0bWzSAWtodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA4LzE2L2J1c2luZXNzL3VuaXRlZC1lbWlyYXRlcy12aXJnaW4tYWlybGluZXMtYWZnaGFuaXN0YW4taW50bC1obmsvaW5kZXguaHRtbA?oc=5)
+---
