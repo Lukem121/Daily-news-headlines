@@ -668,3 +668,6 @@
 ### **Airlines avoid Afghan airspace as Kabul airport closes to commercial flights - CNN**
 #### Mon, 16 Aug 2021 13:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8xNi9idXNpbmVzcy91bml0ZWQtZW1pcmF0ZXMtdmlyZ2luLWFpcmxpbmVzLWFmZ2hhbmlzdGFuLWludGwtaG5rL2luZGV4Lmh0bWzSAWtodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA4LzE2L2J1c2luZXNzL3VuaXRlZC1lbWlyYXRlcy12aXJnaW4tYWlybGluZXMtYWZnaGFuaXN0YW4taW50bC1obmsvaW5kZXguaHRtbA?oc=5)
 ---
+### **Flights resume from Kabul airport as people scramble to leave Afghanistan - CNBC**
+#### Tue, 17 Aug 2021 10:10:32 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDgvMTcvZmxpZ2h0cy1yZXN1bWUtZnJvbS1rYWJ1bC1haXJwb3J0LWFtaWQtc2NyYW1ibGUtdG8tbGVhdmUtYWZnaGFuaXN0YW4uaHRtbNIBbWh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA4LzE3L2ZsaWdodHMtcmVzdW1lLWZyb20ta2FidWwtYWlycG9ydC1hbWlkLXNjcmFtYmxlLXRvLWxlYXZlLWFmZ2hhbmlzdGFuLmh0bWw?oc=5)
+---
