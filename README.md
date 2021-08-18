@@ -671,3 +671,6 @@
 ### **Flights resume from Kabul airport as people scramble to leave Afghanistan - CNBC**
 #### Tue, 17 Aug 2021 10:10:32 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDgvMTcvZmxpZ2h0cy1yZXN1bWUtZnJvbS1rYWJ1bC1haXJwb3J0LWFtaWQtc2NyYW1ibGUtdG8tbGVhdmUtYWZnaGFuaXN0YW4uaHRtbNIBbWh0dHBzOi8vd3d3LmNuYmMuY29tL2FtcC8yMDIxLzA4LzE3L2ZsaWdodHMtcmVzdW1lLWZyb20ta2FidWwtYWlycG9ydC1hbWlkLXNjcmFtYmxlLXRvLWxlYXZlLWFmZ2hhbmlzdGFuLmh0bWw?oc=5)
 ---
+### **Why did Biden pull US military troops out of Afghanistan? - Vox.com**
+#### Wed, 18 Aug 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LnZveC5jb20vMjAyMS84LzE4LzIyNjI5MTM1L2JpZGVuLWFmZ2hhbmlzdGFuLXdpdGhkcmF3YWwtcmVhc29uc9IBWGh0dHBzOi8vd3d3LnZveC5jb20vcGxhdGZvcm0vYW1wLzIwMjEvOC8xOC8yMjYyOTEzNS9iaWRlbi1hZmdoYW5pc3Rhbi13aXRoZHJhd2FsLXJlYXNvbnM?oc=5)
+---
