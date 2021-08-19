@@ -674,3 +674,6 @@
 ### **Why did Biden pull US military troops out of Afghanistan? - Vox.com**
 #### Wed, 18 Aug 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiS2h0dHBzOi8vd3d3LnZveC5jb20vMjAyMS84LzE4LzIyNjI5MTM1L2JpZGVuLWFmZ2hhbmlzdGFuLXdpdGhkcmF3YWwtcmVhc29uc9IBWGh0dHBzOi8vd3d3LnZveC5jb20vcGxhdGZvcm0vYW1wLzIwMjEvOC8xOC8yMjYyOTEzNS9iaWRlbi1hZmdoYW5pc3Rhbi13aXRoZHJhd2FsLXJlYXNvbnM?oc=5)
 ---
+### **Desperate Afghan moms throw babies over barbed wire to UK troops at airport - New York Post **
+#### Thu, 19 Aug 2021 11:55:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA4LzE5L2FmZ2hhbi1tb21zLXRocm93LWJhYmllcy1vdmVyLWJhcmJlZC13aXJlLXRvLXVrLXRyb29wcy1hdC1haXJwb3J0L9IBZGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA4LzE5L2FmZ2hhbi1tb21zLXRocm93LWJhYmllcy1vdmVyLWJhcmJlZC13aXJlLXRvLXVrLXRyb29wcy1hdC1haXJwb3J0L2FtcC8?oc=5)
+---
