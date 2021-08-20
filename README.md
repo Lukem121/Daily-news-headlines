@@ -677,3 +677,6 @@
 ### **Desperate Afghan moms throw babies over barbed wire to UK troops at airport - New York Post **
 #### Thu, 19 Aug 2021 11:55:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA4LzE5L2FmZ2hhbi1tb21zLXRocm93LWJhYmllcy1vdmVyLWJhcmJlZC13aXJlLXRvLXVrLXRyb29wcy1hdC1haXJwb3J0L9IBZGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA4LzE5L2FmZ2hhbi1tb21zLXRocm93LWJhYmllcy1vdmVyLWJhcmJlZC13aXJlLXRvLXVrLXRyb29wcy1hdC1haXJwb3J0L2FtcC8?oc=5)
 ---
+### **Biden needs to authorize military to save stranded Americans in Afghanistan, Crenshaw says - Fox News**
+#### Fri, 20 Aug 2021 09:13:42 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2JpZGVuLW5lZWRzLWV4cGFuZC1taWxpdGFyeS1hZmdoYW5pc3RhbtIBTGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2JpZGVuLW5lZWRzLWV4cGFuZC1taWxpdGFyeS1hZmdoYW5pc3Rhbi5hbXA?oc=5)
+---
