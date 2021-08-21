@@ -680,3 +680,6 @@
 ### **Biden needs to authorize military to save stranded Americans in Afghanistan, Crenshaw says - Fox News**
 #### Fri, 20 Aug 2021 09:13:42 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2JpZGVuLW5lZWRzLWV4cGFuZC1taWxpdGFyeS1hZmdoYW5pc3RhbtIBTGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL2JpZGVuLW5lZWRzLWV4cGFuZC1taWxpdGFyeS1hZmdoYW5pc3Rhbi5hbXA?oc=5)
 ---
+### **‘America first’ again? Is Biden echoing Trump on Afghanistan and vaccines? - The Guardian**
+#### Sat, 21 Aug 2021 13:11:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvYXVnLzIxL2JpZGVuLXRydW1wLWFtZXJpY2EtZmlyc3QtcHJvZ3Jlc3NpdmXSAVVodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8yMS9iaWRlbi10cnVtcC1hbWVyaWNhLWZpcnN0LXByb2dyZXNzaXZl?oc=5)
+---
