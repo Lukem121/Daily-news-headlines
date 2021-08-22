@@ -683,3 +683,6 @@
 ### **‘America first’ again? Is Biden echoing Trump on Afghanistan and vaccines? - The Guardian**
 #### Sat, 21 Aug 2021 13:11:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvYXVnLzIxL2JpZGVuLXRydW1wLWFtZXJpY2EtZmlyc3QtcHJvZ3Jlc3NpdmXSAVVodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL2F1Zy8yMS9iaWRlbi10cnVtcC1hbWVyaWNhLWZpcnN0LXByb2dyZXNzaXZl?oc=5)
 ---
+### **Tracking Henri: Tropical Storm Warnings In Effect Across Tri-State; Flash Flooding And Storm Surges Expected - CBS New York**
+#### Sun, 22 Aug 2021 13:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijAFodHRwczovL25ld3lvcmsuY2JzbG9jYWwuY29tLzIwMjEvMDgvMjIvdHJhY2tpbmctaGVucmktaHVycmljYW5lLXdhcm5pbmctdHJvcGljYWwtc3Rvcm0td2FybmluZy1uZXcteW9yay1sb25nLWlzbGFuZC1uZXctamVyc2V5LWNvbm5lY3RpY3V0L9IBkAFodHRwczovL25ld3lvcmsuY2JzbG9jYWwuY29tLzIwMjEvMDgvMjIvdHJhY2tpbmctaGVucmktaHVycmljYW5lLXdhcm5pbmctdHJvcGljYWwtc3Rvcm0td2FybmluZy1uZXcteW9yay1sb25nLWlzbGFuZC1uZXctamVyc2V5LWNvbm5lY3RpY3V0Lz9hbXA?oc=5)
+---
