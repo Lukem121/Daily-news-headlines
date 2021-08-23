@@ -686,3 +686,6 @@
 ### **Tracking Henri: Tropical Storm Warnings In Effect Across Tri-State; Flash Flooding And Storm Surges Expected - CBS New York**
 #### Sun, 22 Aug 2021 13:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijAFodHRwczovL25ld3lvcmsuY2JzbG9jYWwuY29tLzIwMjEvMDgvMjIvdHJhY2tpbmctaGVucmktaHVycmljYW5lLXdhcm5pbmctdHJvcGljYWwtc3Rvcm0td2FybmluZy1uZXcteW9yay1sb25nLWlzbGFuZC1uZXctamVyc2V5LWNvbm5lY3RpY3V0L9IBkAFodHRwczovL25ld3lvcmsuY2JzbG9jYWwuY29tLzIwMjEvMDgvMjIvdHJhY2tpbmctaGVucmktaHVycmljYW5lLXdhcm5pbmctdHJvcGljYWwtc3Rvcm0td2FybmluZy1uZXcteW9yay1sb25nLWlzbGFuZC1uZXctamVyc2V5LWNvbm5lY3RpY3V0Lz9hbXA?oc=5)
 ---
+### **Deadly firefight erupts at Kabul airport as evacuation chaos continues into second week - CNBC**
+#### Mon, 23 Aug 2021 09:54:51 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDgvMjMvZGVhZGx5LWZpcmVmaWdodC1lcnVwdHMtYXQta2FidWwtYWlycG9ydC1hcy1ldmFjdWF0aW9uLWNoYW9zLWNvbnRpbnVlcy5odG1s0gFvaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDgvMjMvZGVhZGx5LWZpcmVmaWdodC1lcnVwdHMtYXQta2FidWwtYWlycG9ydC1hcy1ldmFjdWF0aW9uLWNoYW9zLWNvbnRpbnVlcy5odG1s?oc=5)
+---
