@@ -689,3 +689,6 @@
 ### **Deadly firefight erupts at Kabul airport as evacuation chaos continues into second week - CNBC**
 #### Mon, 23 Aug 2021 09:54:51 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDgvMjMvZGVhZGx5LWZpcmVmaWdodC1lcnVwdHMtYXQta2FidWwtYWlycG9ydC1hcy1ldmFjdWF0aW9uLWNoYW9zLWNvbnRpbnVlcy5odG1s0gFvaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDgvMjMvZGVhZGx5LWZpcmVmaWdodC1lcnVwdHMtYXQta2FidWwtYWlycG9ydC1hcy1ldmFjdWF0aW9uLWNoYW9zLWNvbnRpbnVlcy5odG1s?oc=5)
 ---
+### **CIA Director William Burns held secret meeting in Kabul with Taliban leader Abdul Ghani Baradar - The Washington Post**
+#### Tue, 24 Aug 2021 10:19:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiwFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uYWwtc2VjdXJpdHkvYnVybnMtYWZnaGFuaXN0YW4tYmFyYWRhci1iaWRlbi8yMDIxLzA4LzI0L2M5NmJlZTVjLTA0YmEtMTFlYy1iYTE1LTljNGY1OWE2MDQ3OF9zdG9yeS5odG1s0gEA?oc=5)
+---
