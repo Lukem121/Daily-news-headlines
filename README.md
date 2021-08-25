@@ -692,3 +692,6 @@
 ### **CIA Director William Burns held secret meeting in Kabul with Taliban leader Abdul Ghani Baradar - The Washington Post**
 #### Tue, 24 Aug 2021 10:19:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiiwFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vbmF0aW9uYWwtc2VjdXJpdHkvYnVybnMtYWZnaGFuaXN0YW4tYmFyYWRhci1iaWRlbi8yMDIxLzA4LzI0L2M5NmJlZTVjLTA0YmEtMTFlYy1iYTE1LTljNGY1OWE2MDQ3OF9zdG9yeS5odG1s0gEA?oc=5)
 ---
+### **Taliban tell Afghan women to stay home from work because soldiers are 'not trained' to respect them - CNN**
+#### Wed, 25 Aug 2021 11:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8yNS9hc2lhL3RhbGliYW4td29tZW4td29ya3BsYWNlcy1hZmdoYW5pc3Rhbi1pbnRsL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA4LzI1L2FzaWEvdGFsaWJhbi13b21lbi13b3JrcGxhY2VzLWFmZ2hhbmlzdGFuLWludGwvaW5kZXguaHRtbA?oc=5)
+---
