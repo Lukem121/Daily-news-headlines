@@ -695,3 +695,6 @@
 ### **Taliban tell Afghan women to stay home from work because soldiers are 'not trained' to respect them - CNN**
 #### Wed, 25 Aug 2021 11:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8yNS9hc2lhL3RhbGliYW4td29tZW4td29ya3BsYWNlcy1hZmdoYW5pc3Rhbi1pbnRsL2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzA4LzI1L2FzaWEvdGFsaWJhbi13b21lbi13b3JrcGxhY2VzLWFmZ2hhbmlzdGFuLWludGwvaW5kZXguaHRtbA?oc=5)
 ---
+### **Afghans told to leave Kabul airport over 'very credible' Islamic State threat - New York Post **
+#### Thu, 26 Aug 2021 08:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA4LzI2L2FmZ2hhbnMtdG9sZC10by1sZWF2ZS1rYWJ1bC1haXJwb3J0LW92ZXItdmVyeS1jcmVkaWJsZS1pc2xhbWljLXN0YXRlLXRocmVhdC_SAW5odHRwczovL255cG9zdC5jb20vMjAyMS8wOC8yNi9hZmdoYW5zLXRvbGQtdG8tbGVhdmUta2FidWwtYWlycG9ydC1vdmVyLXZlcnktY3JlZGlibGUtaXNsYW1pYy1zdGF0ZS10aHJlYXQvYW1wLw?oc=5)
+---
