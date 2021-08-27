@@ -698,3 +698,6 @@
 ### **Afghans told to leave Kabul airport over 'very credible' Islamic State threat - New York Post **
 #### Thu, 26 Aug 2021 08:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA4LzI2L2FmZ2hhbnMtdG9sZC10by1sZWF2ZS1rYWJ1bC1haXJwb3J0LW92ZXItdmVyeS1jcmVkaWJsZS1pc2xhbWljLXN0YXRlLXRocmVhdC_SAW5odHRwczovL255cG9zdC5jb20vMjAyMS8wOC8yNi9hZmdoYW5zLXRvbGQtdG8tbGVhdmUta2FidWwtYWlycG9ydC1vdmVyLXZlcnktY3JlZGlibGUtaXNsYW1pYy1zdGF0ZS10aHJlYXQvYW1wLw?oc=5)
 ---
+### **The Bombings at the Kabul Airport - The New York Times**
+#### Fri, 27 Aug 2021 11:02:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDgvMjcvcG9kY2FzdHMvdGhlLWRhaWx5L2thYnVsLWFpcnBvcnQtYm9tYmluZ3MtaXNpcy5odG1s0gFaaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wOC8yNy9wb2RjYXN0cy90aGUtZGFpbHkva2FidWwtYWlycG9ydC1ib21iaW5ncy1pc2lzLmFtcC5odG1s?oc=5)
+---
