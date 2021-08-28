@@ -701,3 +701,6 @@
 ### **The Bombings at the Kabul Airport - The New York Times**
 #### Fri, 27 Aug 2021 11:02:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDgvMjcvcG9kY2FzdHMvdGhlLWRhaWx5L2thYnVsLWFpcnBvcnQtYm9tYmluZ3MtaXNpcy5odG1s0gFaaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8wOC8yNy9wb2RjYXN0cy90aGUtZGFpbHkva2FidWwtYWlycG9ydC1ib21iaW5ncy1pc2lzLmFtcC5odG1s?oc=5)
 ---
+### **Afghanistan drone strike targeted Islamic State ‘planner’ in car, US says - The Guardian**
+#### Sat, 28 Aug 2021 12:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2F1Zy8yOC9hZmdoYW5pc3Rhbi1kcm9uZS1zdHJpa2UtdGFyZ2V0ZWQtaXNsYW1pYy1zdGF0ZS1wbGFubmVyLWluLWNhci11cy1zYXlz0gF0aHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3dvcmxkLzIwMjEvYXVnLzI4L2FmZ2hhbmlzdGFuLWRyb25lLXN0cmlrZS10YXJnZXRlZC1pc2xhbWljLXN0YXRlLXBsYW5uZXItaW4tY2FyLXVzLXNheXM?oc=5)
+---
