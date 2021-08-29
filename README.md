@@ -704,3 +704,6 @@
 ### **Afghanistan drone strike targeted Islamic State ‘planner’ in car, US says - The Guardian**
 #### Sat, 28 Aug 2021 12:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS93b3JsZC8yMDIxL2F1Zy8yOC9hZmdoYW5pc3Rhbi1kcm9uZS1zdHJpa2UtdGFyZ2V0ZWQtaXNsYW1pYy1zdGF0ZS1wbGFubmVyLWluLWNhci11cy1zYXlz0gF0aHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3dvcmxkLzIwMjEvYXVnLzI4L2FmZ2hhbmlzdGFuLWRyb25lLXN0cmlrZS10YXJnZXRlZC1pc2xhbWljLXN0YXRlLXBsYW5uZXItaW4tY2FyLXVzLXNheXM?oc=5)
 ---
+### **Watch live cameras as Hurricane Ida makes landfall: Views of New Orleans, south Louisiana - NOLA.com**
+#### Sun, 29 Aug 2021 11:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3Lm5vbGEuY29tL25ld3MvaHVycmljYW5lL2FydGljbGVfMWY2NjA2NmEtMDhiNC0xMWVjLTkzOTgtNjcxNTZiYWI3NjgwLmh0bWzSAQA?oc=5)
+---
