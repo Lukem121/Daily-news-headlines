@@ -707,3 +707,6 @@
 ### **Watch live cameras as Hurricane Ida makes landfall: Views of New Orleans, south Louisiana - NOLA.com**
 #### Sun, 29 Aug 2021 11:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3Lm5vbGEuY29tL25ld3MvaHVycmljYW5lL2FydGljbGVfMWY2NjA2NmEtMDhiNC0xMWVjLTkzOTgtNjcxNTZiYWI3NjgwLmh0bWzSAQA?oc=5)
 ---
+### **How long will power be out in metro New Orleans? Entergy says it will assess damage Monday - NOLA.com**
+#### Mon, 30 Aug 2021 10:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3Lm5vbGEuY29tL25ld3MvaHVycmljYW5lL2FydGljbGVfZGQ4YWY0ZmUtMDk1Yy0xMWVjLTk1ZWItYzcwYTA2N2MyOTMyLmh0bWzSAQA?oc=5)
+---
