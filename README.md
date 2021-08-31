@@ -710,3 +710,6 @@
 ### **How long will power be out in metro New Orleans? Entergy says it will assess damage Monday - NOLA.com**
 #### Mon, 30 Aug 2021 10:35:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3Lm5vbGEuY29tL25ld3MvaHVycmljYW5lL2FydGljbGVfZGQ4YWY0ZmUtMDk1Yy0xMWVjLTk1ZWItYzcwYTA2N2MyOTMyLmh0bWzSAQA?oc=5)
 ---
+### **Taliban declare victory from Kabul airport tarmac after US withdrawal - CNN**
+#### Tue, 31 Aug 2021 13:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8zMS9hc2lhL3RhbGliYW4tY29udHJvbC1rYWJ1bC1haXJwb3J0LWludGwvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDgvMzEvYXNpYS90YWxpYmFuLWNvbnRyb2wta2FidWwtYWlycG9ydC1pbnRsL2luZGV4Lmh0bWw?oc=5)
+---
