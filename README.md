@@ -713,3 +713,6 @@
 ### **Taliban declare victory from Kabul airport tarmac after US withdrawal - CNN**
 #### Tue, 31 Aug 2021 13:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOC8zMS9hc2lhL3RhbGliYW4tY29udHJvbC1rYWJ1bC1haXJwb3J0LWludGwvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDgvMzEvYXNpYS90YWxpYmFuLWNvbnRyb2wta2FidWwtYWlycG9ydC1pbnRsL2luZGV4Lmh0bWw?oc=5)
 ---
+### **White House chief of staff commits to evacuating Afghan interpreter who helped rescue Biden in 2008 - POLITICO**
+#### Wed, 01 Sep 2021 11:32:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDkvMDEvd2hpdGUtaG91c2UtZXZhY3VhdGluZy1hZmdoYW4taW50ZXJwcmV0ZXItNTA4Mjkx0gFdaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDkvMDEvd2hpdGUtaG91c2UtZXZhY3VhdGluZy1hZmdoYW4taW50ZXJwcmV0ZXItNTA4Mjkx?oc=5)
+---
