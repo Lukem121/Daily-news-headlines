@@ -716,3 +716,6 @@
 ### **White House chief of staff commits to evacuating Afghan interpreter who helped rescue Biden in 2008 - POLITICO**
 #### Wed, 01 Sep 2021 11:32:58 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjEvMDkvMDEvd2hpdGUtaG91c2UtZXZhY3VhdGluZy1hZmdoYW4taW50ZXJwcmV0ZXItNTA4Mjkx0gFdaHR0cHM6Ly93d3cucG9saXRpY28uY29tL2FtcC9uZXdzLzIwMjEvMDkvMDEvd2hpdGUtaG91c2UtZXZhY3VhdGluZy1hZmdoYW4taW50ZXJwcmV0ZXItNTA4Mjkx?oc=5)
 ---
+### **At least eight people killed overnight in NYC in historic flooding - New York Post **
+#### Thu, 02 Sep 2021 10:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA5LzAyL2F0LWxlYXN0LXNldmVuLXBlb3BsZS1raWxsZWQtb3Zlcm5pZ2h0LWluLW55Yy1pbi1oaXN0b3JpYy1mbG9vZGluZy_SAWVodHRwczovL255cG9zdC5jb20vMjAyMS8wOS8wMi9hdC1sZWFzdC1zZXZlbi1wZW9wbGUta2lsbGVkLW92ZXJuaWdodC1pbi1ueWMtaW4taGlzdG9yaWMtZmxvb2RpbmcvYW1wLw?oc=5)
+---
