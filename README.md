@@ -719,3 +719,6 @@
 ### **At least eight people killed overnight in NYC in historic flooding - New York Post **
 #### Thu, 02 Sep 2021 10:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzA5LzAyL2F0LWxlYXN0LXNldmVuLXBlb3BsZS1raWxsZWQtb3Zlcm5pZ2h0LWluLW55Yy1pbi1oaXN0b3JpYy1mbG9vZGluZy_SAWVodHRwczovL255cG9zdC5jb20vMjAyMS8wOS8wMi9hdC1sZWFzdC1zZXZlbi1wZW9wbGUta2lsbGVkLW92ZXJuaWdodC1pbi1ueWMtaW4taGlzdG9yaWMtZmxvb2RpbmcvYW1wLw?oc=5)
 ---
+### **The Supreme Court Heads Toward Reversing Abortion Rights - NPR**
+#### Fri, 03 Sep 2021 10:56:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOS8wMy8xMDMzNzMzOTE4L3RoZS1zdXByZW1lLWNvdXJ0LWhlYWRzLXRvd2FyZC1yZXZlcnNpbmctYWJvcnRpb24tcmlnaHRz0gEA?oc=5)
+---
