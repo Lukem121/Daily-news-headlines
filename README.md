@@ -722,3 +722,6 @@
 ### **The Supreme Court Heads Toward Reversing Abortion Rights - NPR**
 #### Fri, 03 Sep 2021 10:56:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOS8wMy8xMDMzNzMzOTE4L3RoZS1zdXByZW1lLWNvdXJ0LWhlYWRzLXRvd2FyZC1yZXZlcnNpbmctYWJvcnRpb24tcmlnaHRz0gEA?oc=5)
 ---
+### **Texas judge temporarily shields clinics from anti-abortion group lawsuits - The Guardian**
+#### Sat, 04 Sep 2021 12:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8wNC90ZXhhcy1qdWRnZS10ZW1wb3JhcmlseS1zaGllbGRzLWNsaW5pY3MtYW50aS1hYm9ydGlvbi1sYXdzdWl0cy1wbGFubmVkLXBhcmVudGhvb2TSAYEBaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9zZXAvMDQvdGV4YXMtanVkZ2UtdGVtcG9yYXJpbHktc2hpZWxkcy1jbGluaWNzLWFudGktYWJvcnRpb24tbGF3c3VpdHMtcGxhbm5lZC1wYXJlbnRob29k?oc=5)
+---
