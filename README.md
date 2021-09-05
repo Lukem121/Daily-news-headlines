@@ -725,3 +725,6 @@
 ### **Texas judge temporarily shields clinics from anti-abortion group lawsuits - The Guardian**
 #### Sat, 04 Sep 2021 12:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigQFodHRwczovL3d3dy50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8wNC90ZXhhcy1qdWRnZS10ZW1wb3JhcmlseS1zaGllbGRzLWNsaW5pY3MtYW50aS1hYm9ydGlvbi1sYXdzdWl0cy1wbGFubmVkLXBhcmVudGhvb2TSAYEBaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9zZXAvMDQvdGV4YXMtanVkZ2UtdGVtcG9yYXJpbHktc2hpZWxkcy1jbGluaWNzLWFudGktYWJvcnRpb24tbGF3c3VpdHMtcGxhbm5lZC1wYXJlbnRob29k?oc=5)
 ---
+### **Amy Coney Barrett an ‘actual handmaid,’ MSNBC host asserts in Texas abortion law segment - Fox News**
+#### Sun, 05 Sep 2021 08:10:02 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2FteS1jb25leS1iYXJyZXR0LWhhbmRtYWlkLW1zbmJjLWhvc3QtdGlmZmFueS1jcm9zcy10ZXhhcy1hYm9ydGlvbi1sYXfSAWhodHRwczovL3d3dy5mb3huZXdzLmNvbS9tZWRpYS9hbXktY29uZXktYmFycmV0dC1oYW5kbWFpZC1tc25iYy1ob3N0LXRpZmZhbnktY3Jvc3MtdGV4YXMtYWJvcnRpb24tbGF3LmFtcA?oc=5)
+---
