@@ -731,3 +731,6 @@
 ### **Taliban Claim Control Over Panjshir Valley, but Resistance Vows to Fight On - The New York Times**
 #### Mon, 06 Sep 2021 12:37:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuaHRtbNIBXmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuYW1wLmh0bWw?oc=5)
 ---
+### **Taliban Claim Control Over Panjshir Valley, but Resistance Vows to Fight On - The New York Times**
+#### Mon, 06 Sep 2021 12:37:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuaHRtbNIBXmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuYW1wLmh0bWw?oc=5)
+---
