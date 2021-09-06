@@ -728,3 +728,6 @@
 ### **Amy Coney Barrett an ‘actual handmaid,’ MSNBC host asserts in Texas abortion law segment - Fox News**
 #### Sun, 05 Sep 2021 08:10:02 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmZveG5ld3MuY29tL21lZGlhL2FteS1jb25leS1iYXJyZXR0LWhhbmRtYWlkLW1zbmJjLWhvc3QtdGlmZmFueS1jcm9zcy10ZXhhcy1hYm9ydGlvbi1sYXfSAWhodHRwczovL3d3dy5mb3huZXdzLmNvbS9tZWRpYS9hbXktY29uZXktYmFycmV0dC1oYW5kbWFpZC1tc25iYy1ob3N0LXRpZmZhbnktY3Jvc3MtdGV4YXMtYWJvcnRpb24tbGF3LmFtcA?oc=5)
 ---
+### **Taliban Claim Control Over Panjshir Valley, but Resistance Vows to Fight On - The New York Times**
+#### Mon, 06 Sep 2021 12:37:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuaHRtbNIBXmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuYW1wLmh0bWw?oc=5)
+---
