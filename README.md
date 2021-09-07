@@ -734,3 +734,6 @@
 ### **Taliban Claim Control Over Panjshir Valley, but Resistance Vows to Fight On - The New York Times**
 #### Mon, 06 Sep 2021 12:37:16 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuaHRtbNIBXmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMDkvMDYvd29ybGQvYXNpYS9hZmdoYW5pc3Rhbi1wYW5qc2hpci10YWxpYmFuLXJlc2lzdGFuY2UuYW1wLmh0bWw?oc=5)
 ---
+### **Curtains separate male and female Afghan students as new term begins under Taliban rule - CNN**
+#### Tue, 07 Sep 2021 11:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8wNy9hc2lhL2FmZ2hhbi11bml2ZXJzaXR5LW1hbGUtZmVtYWxlLXNlZ3JlZ2F0aW9uLWN1cnRhaW4taW50bC9pbmRleC5odG1s0gFpaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOS8wNy9hc2lhL2FmZ2hhbi11bml2ZXJzaXR5LW1hbGUtZmVtYWxlLXNlZ3JlZ2F0aW9uLWN1cnRhaW4taW50bC9pbmRleC5odG1s?oc=5)
+---
