@@ -737,3 +737,6 @@
 ### **Curtains separate male and female Afghan students as new term begins under Taliban rule - CNN**
 #### Tue, 07 Sep 2021 11:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8wNy9hc2lhL2FmZ2hhbi11bml2ZXJzaXR5LW1hbGUtZmVtYWxlLXNlZ3JlZ2F0aW9uLWN1cnRhaW4taW50bC9pbmRleC5odG1s0gFpaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOS8wNy9hc2lhL2FmZ2hhbi11bml2ZXJzaXR5LW1hbGUtZmVtYWxlLXNlZ3JlZ2F0aW9uLWN1cnRhaW4taW50bC9pbmRleC5odG1s?oc=5)
 ---
+### **Schwarzenegger says atmosphere of this year's California recall looks 'exactly the same' as when he won in 2003 - CNN**
+#### Wed, 08 Sep 2021 10:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8wOC9wb2xpdGljcy9hcm5vbGQtc2Nod2FyemVuZWdnZXItZ2F2aW4tbmV3c29tLWNhbGlmb3JuaWEtcmVjYWxsLXBvZGNhc3QvaW5kZXguaHRtbNIBc2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDkvMDgvcG9saXRpY3MvYXJub2xkLXNjaHdhcnplbmVnZ2VyLWdhdmluLW5ld3NvbS1jYWxpZm9ybmlhLXJlY2FsbC1wb2RjYXN0L2luZGV4Lmh0bWw?oc=5)
+---
