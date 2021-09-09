@@ -740,3 +740,6 @@
 ### **Schwarzenegger says atmosphere of this year's California recall looks 'exactly the same' as when he won in 2003 - CNN**
 #### Wed, 08 Sep 2021 10:06:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8wOC9wb2xpdGljcy9hcm5vbGQtc2Nod2FyemVuZWdnZXItZ2F2aW4tbmV3c29tLWNhbGlmb3JuaWEtcmVjYWxsLXBvZGNhc3QvaW5kZXguaHRtbNIBc2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDkvMDgvcG9saXRpY3MvYXJub2xkLXNjaHdhcnplbmVnZ2VyLWdhdmluLW5ld3NvbS1jYWxpZm9ybmlhLXJlY2FsbC1wb2RjYXN0L2luZGV4Lmh0bWw?oc=5)
 ---
+### **Weeks after fleeing Afghanistan, former President Ashraf Ghani issues 'explanation' statement to Afghan people — only in English - CNBC**
+#### Thu, 09 Sep 2021 08:48:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDkvMDkvYXNocmFmLWdoYW5pLWFmZ2hhbmlzdGFuLWV4LXByZXNpZGVudC1pc3N1ZXMtZXhwbGFuYXRpb24tYWZ0ZXItZmxlZWluZy5odG1s0gFvaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDkvMDkvYXNocmFmLWdoYW5pLWFmZ2hhbmlzdGFuLWV4LXByZXNpZGVudC1pc3N1ZXMtZXhwbGFuYXRpb24tYWZ0ZXItZmxlZWluZy5odG1s?oc=5)
+---
