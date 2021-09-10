@@ -743,3 +743,6 @@
 ### **Weeks after fleeing Afghanistan, former President Ashraf Ghani issues 'explanation' statement to Afghan people — only in English - CNBC**
 #### Thu, 09 Sep 2021 08:48:20 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDkvMDkvYXNocmFmLWdoYW5pLWFmZ2hhbmlzdGFuLWV4LXByZXNpZGVudC1pc3N1ZXMtZXhwbGFuYXRpb24tYWZ0ZXItZmxlZWluZy5odG1s0gFvaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDkvMDkvYXNocmFmLWdoYW5pLWFmZ2hhbmlzdGFuLWV4LXByZXNpZGVudC1pc3N1ZXMtZXhwbGFuYXRpb24tYWZ0ZXItZmxlZWluZy5odG1s?oc=5)
 ---
+### **Biden vaccine mandates reach millions of workers and businesses, reactions mixed - The Washington Post**
+#### Fri, 10 Sep 2021 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9idXNpbmVzcy8yMDIxLzA5LzEwL2JpZGVuLXZhY2NpbmUtbWFuZGF0ZS13b3JrZXJzLWJ1c2luZXNzZXMv0gEA?oc=5)
+---
