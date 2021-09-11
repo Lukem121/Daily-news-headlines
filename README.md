@@ -746,3 +746,6 @@
 ### **Biden vaccine mandates reach millions of workers and businesses, reactions mixed - The Washington Post**
 #### Fri, 10 Sep 2021 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9idXNpbmVzcy8yMDIxLzA5LzEwL2JpZGVuLXZhY2NpbmUtbWFuZGF0ZS13b3JrZXJzLWJ1c2luZXNzZXMv0gEA?oc=5)
 ---
+### **On the 20th anniversary of 9/11, America honors the memory of those who were lost: 'We remember' - USA TODAY**
+#### Sat, 11 Sep 2021 13:07:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9uYXRpb24vMjAyMS8wOS8xMS85LTExLWFubml2ZXJzYXJ5LW55Yy1wZW50YWdvbi1zaGFua3N2aWxsZS1jZXJlbW9uaWVzLWhvbm9yLXZpY3RpbXMvODI1NTU3MDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzgyNTU1NzAwMDI?oc=5)
+---
