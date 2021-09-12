@@ -749,3 +749,6 @@
 ### **On the 20th anniversary of 9/11, America honors the memory of those who were lost: 'We remember' - USA TODAY**
 #### Sat, 11 Sep 2021 13:07:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9uYXRpb24vMjAyMS8wOS8xMS85LTExLWFubml2ZXJzYXJ5LW55Yy1wZW50YWdvbi1zaGFua3N2aWxsZS1jZXJlbW9uaWVzLWhvbm9yLXZpY3RpbXMvODI1NTU3MDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzgyNTU1NzAwMDI?oc=5)
 ---
+### **Biden Declassifies Secret FBI Report Detailing Saudi Nationals' Connections To 9/11 - NPR**
+#### Sun, 12 Sep 2021 07:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOS8xMi8xMDM2Mzg5NDQ4L2JpZGVuLWRlY2xhc3NpZmllcy1zZWNyZXQtZmJpLXJlcG9ydC1kZXRhaWxpbmctc2F1ZGktbmF0aW9uYWxzLWNvbm5lY3Rpb25zLXRvLTkt0gEA?oc=5)
+---
