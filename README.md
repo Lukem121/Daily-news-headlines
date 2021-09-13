@@ -752,3 +752,6 @@
 ### **Biden Declassifies Secret FBI Report Detailing Saudi Nationals' Connections To 9/11 - NPR**
 #### Sun, 12 Sep 2021 07:31:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOS8xMi8xMDM2Mzg5NDQ4L2JpZGVuLWRlY2xhc3NpZmllcy1zZWNyZXQtZmJpLXJlcG9ydC1kZXRhaWxpbmctc2F1ZGktbmF0aW9uYWxzLWNvbm5lY3Rpb25zLXRvLTkt0gEA?oc=5)
 ---
+### **Everything You Need To Know About The California Recall Election - FiveThirtyEight**
+#### Mon, 13 Sep 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vZml2ZXRoaXJ0eWVpZ2h0LmNvbS9mZWF0dXJlcy9ldmVyeXRoaW5nLXlvdS1uZWVkLXRvLWtub3ctYWJvdXQtdGhlLWNhbGlmb3JuaWEtcmVjYWxsLWVsZWN0aW9uL9IBamh0dHBzOi8vZml2ZXRoaXJ0eWVpZ2h0LmNvbS9mZWF0dXJlcy9ldmVyeXRoaW5nLXlvdS1uZWVkLXRvLWtub3ctYWJvdXQtdGhlLWNhbGlmb3JuaWEtcmVjYWxsLWVsZWN0aW9uL2FtcC8?oc=5)
+---
