@@ -755,3 +755,6 @@
 ### **Everything You Need To Know About The California Recall Election - FiveThirtyEight**
 #### Mon, 13 Sep 2021 10:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZmh0dHBzOi8vZml2ZXRoaXJ0eWVpZ2h0LmNvbS9mZWF0dXJlcy9ldmVyeXRoaW5nLXlvdS1uZWVkLXRvLWtub3ctYWJvdXQtdGhlLWNhbGlmb3JuaWEtcmVjYWxsLWVsZWN0aW9uL9IBamh0dHBzOi8vZml2ZXRoaXJ0eWVpZ2h0LmNvbS9mZWF0dXJlcy9ldmVyeXRoaW5nLXlvdS1uZWVkLXRvLWtub3ctYWJvdXQtdGhlLWNhbGlmb3JuaWEtcmVjYWxsLWVsZWN0aW9uL2FtcC8?oc=5)
 ---
+### **Gavin Newsom’s political fate in balance as final votes cast in California recall - The Guardian**
+#### Tue, 14 Sep 2021 10:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE0L2NhbGlmb3JuaWEtZ292ZXJub3ItcmVjYWxsLWVsZWN0aW9uLWdhdmluLW5ld3NvbS1sYXRlc3TSAWdodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8xNC9jYWxpZm9ybmlhLWdvdmVybm9yLXJlY2FsbC1lbGVjdGlvbi1nYXZpbi1uZXdzb20tbGF0ZXN0?oc=5)
+---
