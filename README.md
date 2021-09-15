@@ -758,3 +758,6 @@
 ### **Gavin Newsom’s political fate in balance as final votes cast in California recall - The Guardian**
 #### Tue, 14 Sep 2021 10:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZ2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE0L2NhbGlmb3JuaWEtZ292ZXJub3ItcmVjYWxsLWVsZWN0aW9uLWdhdmluLW5ld3NvbS1sYXRlc3TSAWdodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8xNC9jYWxpZm9ybmlhLWdvdmVybm9yLXJlY2FsbC1lbGVjdGlvbi1nYXZpbi1uZXdzb20tbGF0ZXN0?oc=5)
 ---
+### **First Thing: Gavin Newsom easily survives recall election attempt - The Guardian**
+#### Wed, 15 Sep 2021 10:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE1L2ZpcnN0LXRoaW5nLWdhdmluLW5ld3NvbS1lYXNpbHktc3Vydml2ZXMtcmVjYWxsLWVsZWN0aW9uLWF0dGVtcHTSAXBodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8xNS9maXJzdC10aGluZy1nYXZpbi1uZXdzb20tZWFzaWx5LXN1cnZpdmVzLXJlY2FsbC1lbGVjdGlvbi1hdHRlbXB0?oc=5)
+---
