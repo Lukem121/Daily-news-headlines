@@ -761,3 +761,6 @@
 ### **First Thing: Gavin Newsom easily survives recall election attempt - The Guardian**
 #### Wed, 15 Sep 2021 10:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE1L2ZpcnN0LXRoaW5nLWdhdmluLW5ld3NvbS1lYXNpbHktc3Vydml2ZXMtcmVjYWxsLWVsZWN0aW9uLWF0dGVtcHTSAXBodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8xNS9maXJzdC10aGluZy1nYXZpbi1uZXdzb20tZWFzaWx5LXN1cnZpdmVzLXJlY2FsbC1lbGVjdGlvbi1hdHRlbXB0?oc=5)
 ---
+### **‘Study Newsom’s playbook’: what Democrats – and Republicans – can learn from California’s recall - The Guardian**
+#### Thu, 16 Sep 2021 01:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE1L2NhbGlmb3JuaWEtcmVjYWxsLWVsZWN0aW9uLW5hdGlvbmFsLXVzLXBvbGl0aWNz0gFfaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9zZXAvMTUvY2FsaWZvcm5pYS1yZWNhbGwtZWxlY3Rpb24tbmF0aW9uYWwtdXMtcG9saXRpY3M?oc=5)
+---
