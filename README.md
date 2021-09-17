@@ -764,3 +764,6 @@
 ### **‘Study Newsom’s playbook’: what Democrats – and Republicans – can learn from California’s recall - The Guardian**
 #### Thu, 16 Sep 2021 01:25:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiX2h0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE1L2NhbGlmb3JuaWEtcmVjYWxsLWVsZWN0aW9uLW5hdGlvbmFsLXVzLXBvbGl0aWNz0gFfaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9zZXAvMTUvY2FsaWZvcm5pYS1yZWNhbGwtZWxlY3Rpb24tbmF0aW9uYWwtdXMtcG9saXRpY3M?oc=5)
 ---
+### **What are nuclear-powered submarines and how do they work? Australia's firepower ambitions explained - CNN**
+#### Fri, 17 Sep 2021 07:32:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8xNy9hdXN0cmFsaWEvbnVjbGVhci1zdWJtYXJpbmVzLWF1a3VzLWV4cGxhaW5lci1pbnRsLWhuay1tbC9pbmRleC5odG1s0gFmaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8wOS8xNy9hdXN0cmFsaWEvbnVjbGVhci1zdWJtYXJpbmVzLWF1a3VzLWV4cGxhaW5lci1pbnRsLWhuay1tbC9pbmRleC5odG1s?oc=5)
+---
