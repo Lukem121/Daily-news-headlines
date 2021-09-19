@@ -770,3 +770,6 @@
 ### **Florida police search for boyfriend of missing woman Gabby Petito - The Guardian**
 #### Sat, 18 Sep 2021 10:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE4L2Zsb3JpZGEtcG9saWNlLXNlYXJjaC1mb3ItYm95ZnJpZW5kLW9mLW1pc3Npbmctd29tYW4tZ2FiYnktcGV0aXRv0gFxaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9zZXAvMTgvZmxvcmlkYS1wb2xpY2Utc2VhcmNoLWZvci1ib3lmcmllbmQtb2YtbWlzc2luZy13b21hbi1nYWJieS1wZXRpdG8?oc=5)
 ---
+### **Mystery deepens as police search for fiance of missing Gabby Petito - The Guardian**
+#### Sun, 19 Sep 2021 12:29:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzE5L2dhYmJ5LXBldGl0by1icmlhbi1sYXVuZHJpZS12YW4tbGlmZS1taXNzaW5nLXdvbWFuLWZsb3JpZGEtbmF0dXJlLXJlc2VydmXSAXlodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8xOS9nYWJieS1wZXRpdG8tYnJpYW4tbGF1bmRyaWUtdmFuLWxpZmUtbWlzc2luZy13b21hbi1mbG9yaWRhLW5hdHVyZS1yZXNlcnZl?oc=5)
+---
