@@ -776,3 +776,6 @@
 ### **Gabby Petito: Florida police search for fiance after remains found - The Guardian**
 #### Mon, 20 Sep 2021 12:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzIwL2dhYmJ5LXBldGl0by1mbG9yaWRhLXBvbGljZS1zZWFyY2gtZmlhbmNlLWJyaWFuLWxhdW5kcmllLW9mLW1pc3Npbmctd29tYW7SAXlodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8yMC9nYWJieS1wZXRpdG8tZmxvcmlkYS1wb2xpY2Utc2VhcmNoLWZpYW5jZS1icmlhbi1sYXVuZHJpZS1vZi1taXNzaW5nLXdvbWFu?oc=5)
 ---
+### **Park ranger warned Gabby Petito her relationship seemed toxic after she was called to abuse incident - Daily Mail**
+#### Tue, 21 Sep 2021 09:06:21 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3LmRhaWx5bWFpbC5jby51ay9uZXdzL2FydGljbGUtMTAwMTIwNzUvUGFyay1yYW5nZXItd2FybmVkLUdhYmJ5LVBldGl0by1yZWxhdGlvbnNoaXAtdG94aWMtY2FsbGVkLWFidXNlLWluY2lkZW50Lmh0bWzSAYMBaHR0cHM6Ly93d3cuZGFpbHltYWlsLmNvLnVrL25ld3MvYXJ0aWNsZS0xMDAxMjA3NS9hbXAvUGFyay1yYW5nZXItd2FybmVkLUdhYmJ5LVBldGl0by1yZWxhdGlvbnNoaXAtdG94aWMtY2FsbGVkLWFidXNlLWluY2lkZW50Lmh0bWw?oc=5)
+---
