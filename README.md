@@ -779,3 +779,6 @@
 ### **Park ranger warned Gabby Petito her relationship seemed toxic after she was called to abuse incident - Daily Mail**
 #### Tue, 21 Sep 2021 09:06:21 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3LmRhaWx5bWFpbC5jby51ay9uZXdzL2FydGljbGUtMTAwMTIwNzUvUGFyay1yYW5nZXItd2FybmVkLUdhYmJ5LVBldGl0by1yZWxhdGlvbnNoaXAtdG94aWMtY2FsbGVkLWFidXNlLWluY2lkZW50Lmh0bWzSAYMBaHR0cHM6Ly93d3cuZGFpbHltYWlsLmNvLnVrL25ld3MvYXJ0aWNsZS0xMDAxMjA3NS9hbXAvUGFyay1yYW5nZXItd2FybmVkLUdhYmJ5LVBldGl0by1yZWxhdGlvbnNoaXAtdG94aWMtY2FsbGVkLWFidXNlLWluY2lkZW50Lmh0bWw?oc=5)
 ---
+### **First Thing: Gabby Petito’s death ruled a homicide by coroner - The Guardian**
+#### Wed, 22 Sep 2021 10:51:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzIyL2ZpcnN0LXRoaW5nLWdhYmJ5LXBldGl0by1kZWF0aC1ydWxlZC1hLWhvbWljaWRlLWJ5LWNvcm9uZXLSAWpodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8yMi9maXJzdC10aGluZy1nYWJieS1wZXRpdG8tZGVhdGgtcnVsZWQtYS1ob21pY2lkZS1ieS1jb3JvbmVy?oc=5)
+---
