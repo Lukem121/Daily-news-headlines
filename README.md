@@ -782,3 +782,6 @@
 ### **First Thing: Gabby Petito’s death ruled a homicide by coroner - The Guardian**
 #### Wed, 22 Sep 2021 10:51:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzIyL2ZpcnN0LXRoaW5nLWdhYmJ5LXBldGl0by1kZWF0aC1ydWxlZC1hLWhvbWljaWRlLWJ5LWNvcm9uZXLSAWpodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL3NlcC8yMi9maXJzdC10aGluZy1nYWJieS1wZXRpdG8tZGVhdGgtcnVsZWQtYS1ob21pY2lkZS1ieS1jb3JvbmVy?oc=5)
 ---
+### **Special envoy to Haiti resigns citing 'inhumane' US decision to deport thousands of Haitians from US border - CNN**
+#### Thu, 23 Sep 2021 12:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8yMy9wb2xpdGljcy9kYW5pZWwtZm9vdGUtaGFpdGkvaW5kZXguaHRtbNIBSWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDkvMjMvcG9saXRpY3MvZGFuaWVsLWZvb3RlLWhhaXRpL2luZGV4Lmh0bWw?oc=5)
+---
