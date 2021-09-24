@@ -785,3 +785,6 @@
 ### **Special envoy to Haiti resigns citing 'inhumane' US decision to deport thousands of Haitians from US border - CNN**
 #### Thu, 23 Sep 2021 12:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8wOS8yMy9wb2xpdGljcy9kYW5pZWwtZm9vdGUtaGFpdGkvaW5kZXguaHRtbNIBSWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMDkvMjMvcG9saXRpY3MvZGFuaWVsLWZvb3RlLWhhaXRpL2luZGV4Lmh0bWw?oc=5)
 ---
+### **The Controversial Election Review In Arizona Confirms Biden's Win - NPR**
+#### Fri, 24 Sep 2021 10:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOS8yNC8xMDQwMzI3NDgzL3RoZS1jb250cm92ZXJzaWFsLWVsZWN0aW9uLXJldmlldy1pbi1hcml6b25hLWNvbmZpcm1zLWJpZGVucy13aW7SAQA?oc=5)
+---
