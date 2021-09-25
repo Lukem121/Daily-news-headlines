@@ -788,3 +788,6 @@
 ### **The Controversial Election Review In Arizona Confirms Biden's Win - NPR**
 #### Fri, 24 Sep 2021 10:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8wOS8yNC8xMDQwMzI3NDgzL3RoZS1jb250cm92ZXJzaWFsLWVsZWN0aW9uLXJldmlldy1pbi1hcml6b25hLWNvbmZpcm1zLWJpZGVucy13aW7SAQA?oc=5)
 ---
+### **‘He knows he lost’: Georgia Republican braces for Trump rally in Perry - The Guardian**
+#### Sat, 25 Sep 2021 12:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzI1L3RydW1wLXJhbGx5LXBlcnJ5LWdlb3JnaWEtcmVwdWJsaWNhbi1yYWZmZW5zcGVyZ2VyLWhlcnNjaGVsLXdhbGtlctIBcmh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzI1L3RydW1wLXJhbGx5LXBlcnJ5LWdlb3JnaWEtcmVwdWJsaWNhbi1yYWZmZW5zcGVyZ2VyLWhlcnNjaGVsLXdhbGtlcg?oc=5)
+---
