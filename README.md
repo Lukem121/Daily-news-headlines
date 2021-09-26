@@ -791,3 +791,6 @@
 ### **‘He knows he lost’: Georgia Republican braces for Trump rally in Perry - The Guardian**
 #### Sat, 25 Sep 2021 12:57:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzI1L3RydW1wLXJhbGx5LXBlcnJ5LWdlb3JnaWEtcmVwdWJsaWNhbi1yYWZmZW5zcGVyZ2VyLWhlcnNjaGVsLXdhbGtlctIBcmh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvc2VwLzI1L3RydW1wLXJhbGx5LXBlcnJ5LWdlb3JnaWEtcmVwdWJsaWNhbi1yYWZmZW5zcGVyZ2VyLWhlcnNjaGVsLXdhbGtlcg?oc=5)
 ---
+### **At least 3 dead in Amtrak train derailment in Montana - Associated Press**
+#### Sun, 26 Sep 2021 11:23:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL2FtdHJhay1jcmFzaC1tb250YW5hLWM4YzM3MzA4NDlmNTY4Y2E2OGI0NTVlYjIzYjQ5Y2Vm0gEA?oc=5)
+---
