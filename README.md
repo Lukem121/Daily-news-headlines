@@ -794,3 +794,6 @@
 ### **At least 3 dead in Amtrak train derailment in Montana - Associated Press**
 #### Sun, 26 Sep 2021 11:23:12 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vYXBuZXdzLmNvbS9hcnRpY2xlL2FtdHJhay1jcmFzaC1tb250YW5hLWM4YzM3MzA4NDlmNTY4Y2E2OGI0NTVlYjIzYjQ5Y2Vm0gEA?oc=5)
 ---
+### **Germany Social Democrats declare mandate in election - The Washington Post**
+#### Mon, 27 Sep 2021 09:53:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiigFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vd29ybGQvZXVyb3BlL2dlcm1hbnktZWxlY3Rpb25zLWdvdmVybm1lbnQtc2Nob2x6LzIwMjEvMDkvMjcvOTQ3ZmUwYmEtMWYxMS0xMWVjLWE4ZDktMDgyN2EyYTRiOTE1X3N0b3J5Lmh0bWzSAQA?oc=5)
+---
