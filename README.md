@@ -797,3 +797,6 @@
 ### **Germany Social Democrats declare mandate in election - The Washington Post**
 #### Mon, 27 Sep 2021 09:53:22 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiigFodHRwczovL3d3dy53YXNoaW5ndG9ucG9zdC5jb20vd29ybGQvZXVyb3BlL2dlcm1hbnktZWxlY3Rpb25zLWdvdmVybm1lbnQtc2Nob2x6LzIwMjEvMDkvMjcvOTQ3ZmUwYmEtMWYxMS0xMWVjLWE4ZDktMDgyN2EyYTRiOTE1X3N0b3J5Lmh0bWzSAQA?oc=5)
 ---
+### **Pelosi says Biden's infrastructure bill can't wait for social safety net bill - NBC News**
+#### Tue, 28 Sep 2021 03:56:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL3BvbGl0aWNzL2NvbmdyZXNzL3BlbG9zaS1zYXlzLWJpZGVuLXMtaW5mcmFzdHJ1Y3R1cmUtYmlsbC1jYW5ub3Qtd2FpdC1zb2NpYWwtc2FmZXR5LW4xMjgwMjE10gEsaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvbmNuYTEyODAyMTU?oc=5)
+---
