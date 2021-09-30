@@ -803,3 +803,6 @@
 ### **Infrastructure bill: Progressive caucus says no infrastructure without reconciliation: LIVE UPDATES - Fox News**
 #### Wed, 29 Sep 2021 04:35:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiO2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL2xpdmUtbmV3cy9pbmZyYXN0cnVjdHVyZS1iaWxsLWJpZGVu0gE_aHR0cHM6Ly93d3cuZm94bmV3cy5jb20vbGl2ZS1uZXdzL2luZnJhc3RydWN0dXJlLWJpbGwtYmlkZW4uYW1w?oc=5)
 ---
+### **Congress moves to prevent a government shutdown with deadline hours away - CNBC**
+#### Thu, 30 Sep 2021 13:00:34 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDkvMzAvZ292ZXJubWVudC1zaHV0ZG93bi1jb25ncmVzcy1tb3Zlcy10by1wYXNzLWZ1bmRpbmctYmlsbC5odG1s0gFgaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDkvMzAvZ292ZXJubWVudC1zaHV0ZG93bi1jb25ncmVzcy1tb3Zlcy10by1wYXNzLWZ1bmRpbmctYmlsbC5odG1s?oc=5)
+---
