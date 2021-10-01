@@ -806,3 +806,6 @@
 ### **Congress moves to prevent a government shutdown with deadline hours away - CNBC**
 #### Thu, 30 Sep 2021 13:00:34 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMDkvMzAvZ292ZXJubWVudC1zaHV0ZG93bi1jb25ncmVzcy1tb3Zlcy10by1wYXNzLWZ1bmRpbmctYmlsbC5odG1s0gFgaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMDkvMzAvZ292ZXJubWVudC1zaHV0ZG93bi1jb25ncmVzcy1tb3Zlcy10by1wYXNzLWZ1bmRpbmctYmlsbC5odG1s?oc=5)
 ---
+### **First Thing: Pelosi delays vote on Biden’s infrastructure bill - The Guardian**
+#### Fri, 01 Oct 2021 10:45:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzAxL2ZpcnN0LXRoaW5nLXBlbG9zaS1kZWxheXMtdm90ZS1vbi1iaWRlbnMtaW5mcmFzdHJ1Y3R1cmUtYmlsbNIBbGh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzAxL2ZpcnN0LXRoaW5nLXBlbG9zaS1kZWxheXMtdm90ZS1vbi1iaWRlbnMtaW5mcmFzdHJ1Y3R1cmUtYmlsbA?oc=5)
+---
