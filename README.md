@@ -809,3 +809,6 @@
 ### **First Thing: Pelosi delays vote on Biden’s infrastructure bill - The Guardian**
 #### Fri, 01 Oct 2021 10:45:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzAxL2ZpcnN0LXRoaW5nLXBlbG9zaS1kZWxheXMtdm90ZS1vbi1iaWRlbnMtaW5mcmFzdHJ1Y3R1cmUtYmlsbNIBbGh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzAxL2ZpcnN0LXRoaW5nLXBlbG9zaS1kZWxheXMtdm90ZS1vbi1iaWRlbnMtaW5mcmFzdHJ1Y3R1cmUtYmlsbA?oc=5)
 ---
+### **'It doesn't matter when': How Biden gave feuding House Democrats an off-ramp - CNN**
+#### Sat, 02 Oct 2021 10:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8wMS9wb2xpdGljcy9kZW1zLWJpZGVuLWluZnJhc3RydWN0dXJlLWRlbGF5L2luZGV4Lmh0bWzSAVZodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzAxL3BvbGl0aWNzL2RlbXMtYmlkZW4taW5mcmFzdHJ1Y3R1cmUtZGVsYXkvaW5kZXguaHRtbA?oc=5)
+---
