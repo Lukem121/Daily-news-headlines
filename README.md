@@ -812,3 +812,6 @@
 ### **'It doesn't matter when': How Biden gave feuding House Democrats an off-ramp - CNN**
 #### Sat, 02 Oct 2021 10:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8wMS9wb2xpdGljcy9kZW1zLWJpZGVuLWluZnJhc3RydWN0dXJlLWRlbGF5L2luZGV4Lmh0bWzSAVZodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzAxL3BvbGl0aWNzL2RlbXMtYmlkZW4taW5mcmFzdHJ1Y3R1cmUtZGVsYXkvaW5kZXguaHRtbA?oc=5)
 ---
+### **Susan Collins calls Texas abortion law 'inhumane,' defends Roe v. Wade as 'law of the land' - Fox News**
+#### Sun, 03 Oct 2021 02:24:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3N1c2FuLWNvbGxpbnMtY2FsbHMtdGV4YXMtYWJvcnRpb24tbGF3LWluaHVtYW5lLWRlZmVuZHMtcm9lLXYtd2FkZS1hcy1sYXctb2YtdGhlLWxhbmTSAXpodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9zdXNhbi1jb2xsaW5zLWNhbGxzLXRleGFzLWFib3J0aW9uLWxhdy1pbmh1bWFuZS1kZWZlbmRzLXJvZS12LXdhZGUtYXMtbGF3LW9mLXRoZS1sYW5kLmFtcA?oc=5)
+---
