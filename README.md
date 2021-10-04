@@ -815,3 +815,6 @@
 ### **Susan Collins calls Texas abortion law 'inhumane,' defends Roe v. Wade as 'law of the land' - Fox News**
 #### Sun, 03 Oct 2021 02:24:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3N1c2FuLWNvbGxpbnMtY2FsbHMtdGV4YXMtYWJvcnRpb24tbGF3LWluaHVtYW5lLWRlZmVuZHMtcm9lLXYtd2FkZS1hcy1sYXctb2YtdGhlLWxhbmTSAXpodHRwczovL3d3dy5mb3huZXdzLmNvbS9wb2xpdGljcy9zdXNhbi1jb2xsaW5zLWNhbGxzLXRleGFzLWFib3J0aW9uLWxhdy1pbmh1bWFuZS1kZWZlbmRzLXJvZS12LXdhZGUtYXMtbGF3LW9mLXRoZS1sYW5kLmFtcA?oc=5)
 ---
+### **Facebook whistleblower renews scrutiny of the social media giant - NPR**
+#### Mon, 04 Oct 2021 11:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8xMC8wNC8xMDQyOTIxOTgxL2ZhY2Vib29rLXdoaXN0bGVibG93ZXItcmVuZXdpbmctc2NydXRpbnktb2Ytc29jaWFsLW1lZGlhLWdpYW50P2Z0PW5wcm1sJmY90gEA?oc=5)
+---
