@@ -818,3 +818,6 @@
 ### **Facebook whistleblower renews scrutiny of the social media giant - NPR**
 #### Mon, 04 Oct 2021 11:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8xMC8wNC8xMDQyOTIxOTgxL2ZhY2Vib29rLXdoaXN0bGVibG93ZXItcmVuZXdpbmctc2NydXRpbnktb2Ytc29jaWFsLW1lZGlhLWdpYW50P2Z0PW5wcm1sJmY90gEA?oc=5)
 ---
+### **Facebook whistleblower to testify in Senate hearing about company's impact on kids - CNN**
+#### Tue, 05 Oct 2021 12:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8wNS90ZWNoL2ZhY2Vib29rLXdoaXN0bGVibG93ZXItdGVzdGlmeS9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8wNS90ZWNoL2ZhY2Vib29rLXdoaXN0bGVibG93ZXItdGVzdGlmeS9pbmRleC5odG1s?oc=5)
+---
