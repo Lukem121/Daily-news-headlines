@@ -821,3 +821,6 @@
 ### **Facebook whistleblower to testify in Senate hearing about company's impact on kids - CNN**
 #### Tue, 05 Oct 2021 12:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8wNS90ZWNoL2ZhY2Vib29rLXdoaXN0bGVibG93ZXItdGVzdGlmeS9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8wNS90ZWNoL2ZhY2Vib29rLXdoaXN0bGVibG93ZXItdGVzdGlmeS9pbmRleC5odG1s?oc=5)
 ---
+### **Democrats are serious about potentially changing Senate filibuster rules to avoid default - CNN**
+#### Wed, 06 Oct 2021 12:44:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8wNi9wb2xpdGljcy9maWxpYnVzdGVyLXN0cmF0ZWd5LXN0YXRlLW9mLXBsYXktc2VuYXRlL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzA2L3BvbGl0aWNzL2ZpbGlidXN0ZXItc3RyYXRlZ3ktc3RhdGUtb2YtcGxheS1zZW5hdGUvaW5kZXguaHRtbA?oc=5)
+---
