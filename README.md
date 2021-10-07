@@ -824,3 +824,6 @@
 ### **Democrats are serious about potentially changing Senate filibuster rules to avoid default - CNN**
 #### Wed, 06 Oct 2021 12:44:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8wNi9wb2xpdGljcy9maWxpYnVzdGVyLXN0cmF0ZWd5LXN0YXRlLW9mLXBsYXktc2VuYXRlL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzA2L3BvbGl0aWNzL2ZpbGlidXN0ZXItc3RyYXRlZ3ktc3RhdGUtb2YtcGxheS1zZW5hdGUvaW5kZXguaHRtbA?oc=5)
 ---
+### **5 things to know before the stock market opens Thursday - CNBC**
+#### Thu, 07 Oct 2021 12:09:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMTAvMDcvNS10aGluZ3MtdG8ta25vdy1iZWZvcmUtdGhlLXN0b2NrLW1hcmtldC1vcGVucy10aHVyc2RheS1vY3QtNy5odG1s0gFmaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMTAvMDcvNS10aGluZ3MtdG8ta25vdy1iZWZvcmUtdGhlLXN0b2NrLW1hcmtldC1vcGVucy10aHVyc2RheS1vY3QtNy5odG1s?oc=5)
+---
