@@ -827,3 +827,6 @@
 ### **5 things to know before the stock market opens Thursday - CNBC**
 #### Thu, 07 Oct 2021 12:09:54 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNuYmMuY29tLzIwMjEvMTAvMDcvNS10aGluZ3MtdG8ta25vdy1iZWZvcmUtdGhlLXN0b2NrLW1hcmtldC1vcGVucy10aHVyc2RheS1vY3QtNy5odG1s0gFmaHR0cHM6Ly93d3cuY25iYy5jb20vYW1wLzIwMjEvMTAvMDcvNS10aGluZ3MtdG8ta25vdy1iZWZvcmUtdGhlLXN0b2NrLW1hcmtldC1vcGVucy10aHVyc2RheS1vY3QtNy5odG1s?oc=5)
 ---
+### **Senate Republicans sow disinformation after $480bn US debt ceiling deal - The Guardian**
+#### Fri, 08 Oct 2021 11:50:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzA4L3NlbmF0ZS1yZXB1YmxpY2Fucy11cy1kZWJ0LWNlaWxpbmctZGVhbC1jb25ncmVzc9IBYGh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzA4L3NlbmF0ZS1yZXB1YmxpY2Fucy11cy1kZWJ0LWNlaWxpbmctZGVhbC1jb25ncmVzcw?oc=5)
+---
