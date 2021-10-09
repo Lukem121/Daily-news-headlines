@@ -830,3 +830,6 @@
 ### **Senate Republicans sow disinformation after $480bn US debt ceiling deal - The Guardian**
 #### Fri, 08 Oct 2021 11:50:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzA4L3NlbmF0ZS1yZXB1YmxpY2Fucy11cy1kZWJ0LWNlaWxpbmctZGVhbC1jb25ncmVzc9IBYGh0dHBzOi8vYW1wLnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzA4L3NlbmF0ZS1yZXB1YmxpY2Fucy11cy1kZWJ0LWNlaWxpbmctZGVhbC1jb25ncmVzcw?oc=5)
 ---
+### **Texas abortion: US appeals court reinstates near total ban - BBC News**
+#### Sat, 09 Oct 2021 06:38:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC11cy1jYW5hZGEtNTg4NTM4NTnSATVodHRwczovL3d3dy5iYmMuY29tL25ld3Mvd29ybGQtdXMtY2FuYWRhLTU4ODUzODU5LmFtcA?oc=5)
+---
