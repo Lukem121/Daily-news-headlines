@@ -833,3 +833,6 @@
 ### **Texas abortion: US appeals court reinstates near total ban - BBC News**
 #### Sat, 09 Oct 2021 06:38:07 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC11cy1jYW5hZGEtNTg4NTM4NTnSATVodHRwczovL3d3dy5iYmMuY29tL25ld3Mvd29ybGQtdXMtY2FuYWRhLTU4ODUzODU5LmFtcA?oc=5)
 ---
+### **Could Brian Laundrie still be alive if he's in Florida's Carlton Reserve? Here's what survival experts think - CNN**
+#### Sun, 10 Oct 2021 12:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xMC91cy9jb3VsZC1icmlhbi1sYXVuZHJpZS1iZS1hbGl2ZS1zdXJ2aXZhbC1leHBlcnRzL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzEwL3VzL2NvdWxkLWJyaWFuLWxhdW5kcmllLWJlLWFsaXZlLXN1cnZpdmFsLWV4cGVydHMvaW5kZXguaHRtbA?oc=5)
+---
