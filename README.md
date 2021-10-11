@@ -836,3 +836,6 @@
 ### **Could Brian Laundrie still be alive if he's in Florida's Carlton Reserve? Here's what survival experts think - CNN**
 #### Sun, 10 Oct 2021 12:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xMC91cy9jb3VsZC1icmlhbi1sYXVuZHJpZS1iZS1hbGl2ZS1zdXJ2aXZhbC1leHBlcnRzL2luZGV4Lmh0bWzSAV9odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzEwL3VzL2NvdWxkLWJyaWFuLWxhdW5kcmllLWJlLWFsaXZlLXN1cnZpdmFsLWV4cGVydHMvaW5kZXguaHRtbA?oc=5)
 ---
+### **Indigenous Peoples' Day, as explained by Native Americans - NPR**
+#### Mon, 11 Oct 2021 07:47:19 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8xMC8xMS8xMDQ0ODIzNjI2L2luZGlnZW5vdXMtcGVvcGxlcy1kYXktbmF0aXZlLWFtZXJpY2Fucy1jb2x1bWJ1c9IBAA?oc=5)
+---
