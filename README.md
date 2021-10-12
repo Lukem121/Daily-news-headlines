@@ -839,3 +839,6 @@
 ### **Indigenous Peoples' Day, as explained by Native Americans - NPR**
 #### Mon, 11 Oct 2021 07:47:19 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8xMC8xMS8xMDQ0ODIzNjI2L2luZGlnZW5vdXMtcGVvcGxlcy1kYXktbmF0aXZlLWFtZXJpY2Fucy1jb2x1bWJ1c9IBAA?oc=5)
 ---
+### **IMF slashes US growth forecast and warns of rising risks to the global economy - CNN**
+#### Tue, 12 Oct 2021 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiR2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xMi9idXNpbmVzcy9pbWYtZWNvbm9taWMtb3V0bG9vay9pbmRleC5odG1s0gFLaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8xMi9idXNpbmVzcy9pbWYtZWNvbm9taWMtb3V0bG9vay9pbmRleC5odG1s?oc=5)
+---
