@@ -842,3 +842,6 @@
 ### **IMF slashes US growth forecast and warns of rising risks to the global economy - CNN**
 #### Tue, 12 Oct 2021 13:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiR2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xMi9idXNpbmVzcy9pbWYtZWNvbm9taWMtb3V0bG9vay9pbmRleC5odG1s0gFLaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8xMi9idXNpbmVzcy9pbWYtZWNvbm9taWMtb3V0bG9vay9pbmRleC5odG1s?oc=5)
 ---
+### **House votes to raise debt ceiling, sending bill to Biden and setting up another fight over borrowing limit - USA TODAY**
+#### Tue, 12 Oct 2021 23:30:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigwFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzEwLzEyL2RlYnQtY2VpbGluZy1ob3VzZS1wYXNzZXMtc2hvcnQtdGVybS1leHRlbnNpb24tc2VuZHMtYmlsbC1iaWRlbi82MTAyNjY0MDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvNjEwMjY2NDAwMQ?oc=5)
+---
