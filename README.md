@@ -845,3 +845,6 @@
 ### **House votes to raise debt ceiling, sending bill to Biden and setting up another fight over borrowing limit - USA TODAY**
 #### Tue, 12 Oct 2021 23:30:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMigwFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9wb2xpdGljcy8yMDIxLzEwLzEyL2RlYnQtY2VpbGluZy1ob3VzZS1wYXNzZXMtc2hvcnQtdGVybS1leHRlbnNpb24tc2VuZHMtYmlsbC1iaWRlbi82MTAyNjY0MDAxL9IBJ2h0dHBzOi8vYW1wLnVzYXRvZGF5LmNvbS9hbXAvNjEwMjY2NDAwMQ?oc=5)
 ---
+### **First Thing: Norway attack suspect ‘showed signs of radicalisation’ - The Guardian**
+#### Thu, 14 Oct 2021 11:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzE0L2ZpcnN0LXRoaW5nLW5vcndheS1hdHRhY2stc3VzcGVjdC1zaG93ZWQtc2lnbnMtb2YtcmFkaWNhbGlzYXRpb27SAXBodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL29jdC8xNC9maXJzdC10aGluZy1ub3J3YXktYXR0YWNrLXN1c3BlY3Qtc2hvd2VkLXNpZ25zLW9mLXJhZGljYWxpc2F0aW9u?oc=5)
+---
