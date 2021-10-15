@@ -848,3 +848,6 @@
 ### **First Thing: Norway attack suspect ‘showed signs of radicalisation’ - The Guardian**
 #### Thu, 14 Oct 2021 11:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvb2N0LzE0L2ZpcnN0LXRoaW5nLW5vcndheS1hdHRhY2stc3VzcGVjdC1zaG93ZWQtc2lnbnMtb2YtcmFkaWNhbGlzYXRpb27SAXBodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL29jdC8xNC9maXJzdC10aGluZy1ub3J3YXktYXR0YWNrLXN1c3BlY3Qtc2hvd2VkLXNpZ25zLW9mLXJhZGljYWxpc2F0aW9u?oc=5)
 ---
+### **Texas abortion ban upheld by federal appeals court - ABC News**
+#### Fri, 15 Oct 2021 02:42:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vYWJjbmV3cy5nby5jb20vVVMvdGV4YXMtYWJvcnRpb24tYmFuLXVwaGVsZC1mZWRlcmFsLWFwcGVhbHMtY291cnQvc3Rvcnk_aWQ9ODA1OTI4MjfSAV9odHRwczovL2FiY25ld3MuZ28uY29tL2FtcC9VUy90ZXhhcy1hYm9ydGlvbi1iYW4tdXBoZWxkLWZlZGVyYWwtYXBwZWFscy1jb3VydC9zdG9yeT9pZD04MDU5MjgyNw?oc=5)
+---
