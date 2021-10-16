@@ -851,3 +851,6 @@
 ### **Texas abortion ban upheld by federal appeals court - ABC News**
 #### Fri, 15 Oct 2021 02:42:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiW2h0dHBzOi8vYWJjbmV3cy5nby5jb20vVVMvdGV4YXMtYWJvcnRpb24tYmFuLXVwaGVsZC1mZWRlcmFsLWFwcGVhbHMtY291cnQvc3Rvcnk_aWQ9ODA1OTI4MjfSAV9odHRwczovL2FiY25ld3MuZ28uY29tL2FtcC9VUy90ZXhhcy1hYm9ydGlvbi1iYW4tdXBoZWxkLWZlZGVyYWwtYXBwZWFscy1jb3VydC9zdG9yeT9pZD04MDU5MjgyNw?oc=5)
 ---
+### **UK Prime Minister Boris Johnson visits scene where MP was fatally stabbed in terrorist incident - CNN**
+#### Sat, 16 Oct 2021 09:44:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xNi91ay9kYXZpZC1hbWVzcy1tcC1zdGFiYmluZy1nYnItaW50bC9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8xNi91ay9kYXZpZC1hbWVzcy1tcC1zdGFiYmluZy1nYnItaW50bC9pbmRleC5odG1s?oc=5)
+---
