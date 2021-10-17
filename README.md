@@ -854,3 +854,6 @@
 ### **UK Prime Minister Boris Johnson visits scene where MP was fatally stabbed in terrorist incident - CNN**
 #### Sat, 16 Oct 2021 09:44:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xNi91ay9kYXZpZC1hbWVzcy1tcC1zdGFiYmluZy1nYnItaW50bC9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8xNi91ay9kYXZpZC1hbWVzcy1tcC1zdGFiYmluZy1nYnItaW50bC9pbmRleC5odG1s?oc=5)
 ---
+### **Haiti gang kidnaps US missionary group, including children - Fox News**
+#### Sun, 17 Oct 2021 10:01:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL2hhaXRpLWdhbmcta2lkbmFwLW1pc3Npb25hcnktZ3JvdXAtY2hpbGRyZW7SAU1odHRwczovL3d3dy5mb3huZXdzLmNvbS93b3JsZC9oYWl0aS1nYW5nLWtpZG5hcC1taXNzaW9uYXJ5LWdyb3VwLWNoaWxkcmVuLmFtcA?oc=5)
+---
