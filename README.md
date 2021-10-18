@@ -857,3 +857,6 @@
 ### **Haiti gang kidnaps US missionary group, including children - Fox News**
 #### Sun, 17 Oct 2021 10:01:25 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3dvcmxkL2hhaXRpLWdhbmcta2lkbmFwLW1pc3Npb25hcnktZ3JvdXAtY2hpbGRyZW7SAU1odHRwczovL3d3dy5mb3huZXdzLmNvbS93b3JsZC9oYWl0aS1nYW5nLWtpZG5hcC1taXNzaW9uYXJ5LWdyb3VwLWNoaWxkcmVuLmFtcA?oc=5)
 ---
+### **Colin Powell, military leader and first Black US secretary of state, dies after complications from Covid-19 - CNN**
+#### Mon, 18 Oct 2021 13:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xOC9wb2xpdGljcy9jb2xpbi1wb3dlbGwtZGllcy9pbmRleC5odG1s0gFIaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8xOC9wb2xpdGljcy9jb2xpbi1wb3dlbGwtZGllcy9pbmRleC5odG1s?oc=5)
+---
