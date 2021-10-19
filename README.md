@@ -860,3 +860,6 @@
 ### **Colin Powell, military leader and first Black US secretary of state, dies after complications from Covid-19 - CNN**
 #### Mon, 18 Oct 2021 13:15:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8xOC9wb2xpdGljcy9jb2xpbi1wb3dlbGwtZGllcy9pbmRleC5odG1s0gFIaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8xOC9wb2xpdGljcy9jb2xpbi1wb3dlbGwtZGllcy9pbmRleC5odG1s?oc=5)
 ---
+### **Two senior House Democrats announce retirements - New York Post **
+#### Tue, 19 Oct 2021 00:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzEwLzE4L2RlbW9jcmF0cy1taWtlLWRveWxlLWFuZC1kYXZpZC1wcmljZS1hbm5vdW5jZS1yZXRpcmVtZW50cy_SAVxodHRwczovL255cG9zdC5jb20vMjAyMS8xMC8xOC9kZW1vY3JhdHMtbWlrZS1kb3lsZS1hbmQtZGF2aWQtcHJpY2UtYW5ub3VuY2UtcmV0aXJlbWVudHMvYW1wLw?oc=5)
+---
