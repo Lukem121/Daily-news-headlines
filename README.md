@@ -863,3 +863,6 @@
 ### **Two senior House Democrats announce retirements - New York Post **
 #### Tue, 19 Oct 2021 00:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzEwLzE4L2RlbW9jcmF0cy1taWtlLWRveWxlLWFuZC1kYXZpZC1wcmljZS1hbm5vdW5jZS1yZXRpcmVtZW50cy_SAVxodHRwczovL255cG9zdC5jb20vMjAyMS8xMC8xOC9kZW1vY3JhdHMtbWlrZS1kb3lsZS1hbmQtZGF2aWQtcHJpY2UtYW5ub3VuY2UtcmV0aXJlbWVudHMvYW1wLw?oc=5)
 ---
+### **White House releases plan to vaccinate 28M children ages 5-11: COVID-19 updates - USA TODAY**
+#### Wed, 20 Oct 2021 13:07:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9oZWFsdGgvMjAyMS8xMC8yMC9jb3ZpZC10cmFuc21pc3Npb24tY2FzZXMtZGVhdGhzLXZhY2NpbmF0aW9ucy10cmFuc21pc3Npb24tbWFuZGF0ZXMvODUzMDIwNDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzg1MzAyMDQwMDI?oc=5)
+---
