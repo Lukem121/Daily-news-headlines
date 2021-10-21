@@ -866,3 +866,6 @@
 ### **White House releases plan to vaccinate 28M children ages 5-11: COVID-19 updates - USA TODAY**
 #### Wed, 20 Oct 2021 13:07:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihAFodHRwczovL3d3dy51c2F0b2RheS5jb20vc3RvcnkvbmV3cy9oZWFsdGgvMjAyMS8xMC8yMC9jb3ZpZC10cmFuc21pc3Npb24tY2FzZXMtZGVhdGhzLXZhY2NpbmF0aW9ucy10cmFuc21pc3Npb24tbWFuZGF0ZXMvODUzMDIwNDAwMi_SASdodHRwczovL2FtcC51c2F0b2RheS5jb20vYW1wLzg1MzAyMDQwMDI?oc=5)
 ---
+### **Strong probability that the suspected remains found in a Florida park are Brian Laundrie's, family attorney says - CNN**
+#### Thu, 21 Oct 2021 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8yMS91cy9icmlhbi1sYXVuZHJpZS11cGRhdGUtZ2FiYnktcGV0aXRvLXRodXJzZGF5L2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzIxL3VzL2JyaWFuLWxhdW5kcmllLXVwZGF0ZS1nYWJieS1wZXRpdG8tdGh1cnNkYXkvaW5kZXguaHRtbA?oc=5)
+---
