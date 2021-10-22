@@ -869,3 +869,6 @@
 ### **Strong probability that the suspected remains found in a Florida park are Brian Laundrie's, family attorney says - CNN**
 #### Thu, 21 Oct 2021 12:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8yMS91cy9icmlhbi1sYXVuZHJpZS11cGRhdGUtZ2FiYnktcGV0aXRvLXRodXJzZGF5L2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEwLzIxL3VzL2JyaWFuLWxhdW5kcmllLXVwZGF0ZS1nYWJieS1wZXRpdG8tdGh1cnNkYXkvaW5kZXguaHRtbA?oc=5)
 ---
+### **Fact-checking Biden's CNN town hall in Baltimore - CNN**
+#### Fri, 22 Oct 2021 12:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8yMi9wb2xpdGljcy9mYWN0LWNoZWNrLWpvZS1iaWRlbi10b3duLWhhbGwvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTAvMjIvcG9saXRpY3MvZmFjdC1jaGVjay1qb2UtYmlkZW4tdG93bi1oYWxsL2luZGV4Lmh0bWw?oc=5)
+---
