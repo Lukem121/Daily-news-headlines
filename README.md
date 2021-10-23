@@ -872,3 +872,6 @@
 ### **Fact-checking Biden's CNN town hall in Baltimore - CNN**
 #### Fri, 22 Oct 2021 12:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8yMi9wb2xpdGljcy9mYWN0LWNoZWNrLWpvZS1iaWRlbi10b3duLWhhbGwvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTAvMjIvcG9saXRpY3MvZmFjdC1jaGVjay1qb2UtYmlkZW4tdG93bi1oYWxsL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Biden escapes his White House 'gilded cage' at a faster pace than Trump - CNN**
+#### Sat, 23 Oct 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8yMy9wb2xpdGljcy9qb2UtYmlkZW4td2Vla2VuZHMtYXdheS9pbmRleC5odG1s0gFOaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8yMy9wb2xpdGljcy9qb2UtYmlkZW4td2Vla2VuZHMtYXdheS9pbmRleC5odG1s?oc=5)
+---
