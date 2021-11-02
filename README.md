@@ -875,3 +875,6 @@
 ### **Biden escapes his White House 'gilded cage' at a faster pace than Trump - CNN**
 #### Sat, 23 Oct 2021 12:00:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMC8yMy9wb2xpdGljcy9qb2UtYmlkZW4td2Vla2VuZHMtYXdheS9pbmRleC5odG1s0gFOaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMC8yMy9wb2xpdGljcy9qb2UtYmlkZW4td2Vla2VuZHMtYXdheS9pbmRleC5odG1s?oc=5)
 ---
+### **Virginia governor’s race: Glenn Youngkin may win due to ‘white backlash’, expert says - The Guardian**
+#### Tue, 02 Nov 2021 12:38:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzAyL3ZpcmdpbmlhLWdvdmVybm9yLXJhY2UtZ2xlbm4teW91bmdraW4td2hpdGUtYmFja2xhc2gtY3JpdGljYWwtcmFjZS10aGVvcnnSAXlodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL25vdi8wMi92aXJnaW5pYS1nb3Zlcm5vci1yYWNlLWdsZW5uLXlvdW5na2luLXdoaXRlLWJhY2tsYXNoLWNyaXRpY2FsLXJhY2UtdGhlb3J5?oc=5)
+---
