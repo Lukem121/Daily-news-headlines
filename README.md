@@ -878,3 +878,6 @@
 ### **Virginia governor’s race: Glenn Youngkin may win due to ‘white backlash’, expert says - The Guardian**
 #### Tue, 02 Nov 2021 12:38:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzAyL3ZpcmdpbmlhLWdvdmVybm9yLXJhY2UtZ2xlbm4teW91bmdraW4td2hpdGUtYmFja2xhc2gtY3JpdGljYWwtcmFjZS10aGVvcnnSAXlodHRwczovL2FtcC50aGVndWFyZGlhbi5jb20vdXMtbmV3cy8yMDIxL25vdi8wMi92aXJnaW5pYS1nb3Zlcm5vci1yYWNlLWdsZW5uLXlvdW5na2luLXdoaXRlLWJhY2tsYXNoLWNyaXRpY2FsLXJhY2UtdGhlb3J5?oc=5)
 ---
+### **Virginia House races: Several contests still too close to call, but GOP appears poised to take back control - WAVY.com**
+#### Wed, 03 Nov 2021 10:47:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMinwFodHRwczovL3d3dy53YXZ5LmNvbS9uZXdzL3BvbGl0aWNzL3ZpcmdpbmlhLXBvbGl0aWNzL3ZpcmdpbmlhLWhvdXNlLXJhY2VzLXNldmVyYWwtY29udGVzdHMtc3RpbGwtdG9vLWNsb3NlLXRvLWNhbGwtYnV0LWdvcC1hcHBlYXJzLXBvaXNlZC10by10YWtlLWJhY2stY29udHJvbC_SAaMBaHR0cHM6Ly93d3cud2F2eS5jb20vbmV3cy9wb2xpdGljcy92aXJnaW5pYS1wb2xpdGljcy92aXJnaW5pYS1ob3VzZS1yYWNlcy1zZXZlcmFsLWNvbnRlc3RzLXN0aWxsLXRvby1jbG9zZS10by1jYWxsLWJ1dC1nb3AtYXBwZWFycy1wb2lzZWQtdG8tdGFrZS1iYWNrLWNvbnRyb2wvYW1wLw?oc=5)
+---
