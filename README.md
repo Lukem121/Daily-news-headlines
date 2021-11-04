@@ -881,3 +881,6 @@
 ### **Virginia House races: Several contests still too close to call, but GOP appears poised to take back control - WAVY.com**
 #### Wed, 03 Nov 2021 10:47:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMinwFodHRwczovL3d3dy53YXZ5LmNvbS9uZXdzL3BvbGl0aWNzL3ZpcmdpbmlhLXBvbGl0aWNzL3ZpcmdpbmlhLWhvdXNlLXJhY2VzLXNldmVyYWwtY29udGVzdHMtc3RpbGwtdG9vLWNsb3NlLXRvLWNhbGwtYnV0LWdvcC1hcHBlYXJzLXBvaXNlZC10by10YWtlLWJhY2stY29udHJvbC_SAaMBaHR0cHM6Ly93d3cud2F2eS5jb20vbmV3cy9wb2xpdGljcy92aXJnaW5pYS1wb2xpdGljcy92aXJnaW5pYS1ob3VzZS1yYWNlcy1zZXZlcmFsLWNvbnRlc3RzLXN0aWxsLXRvby1jbG9zZS10by1jYWxsLWJ1dC1nb3AtYXBwZWFycy1wb2lzZWQtdG8tdGFrZS1iYWNrLWNvbnRyb2wvYW1wLw?oc=5)
 ---
+### **Vaccine rule for larger employers, federal contractors and certain health care workers to take effect January 4 - CNN**
+#### Thu, 04 Nov 2021 12:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMid2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8wNC9wb2xpdGljcy92YWNjaW5lLXJ1bGUtbGFyZ2UtZW1wbG95ZXJzLWZlZGVyYWwtY29udHJhY3RvcnMtaGVhbHRoLWNhcmUtd29ya2Vycy9pbmRleC5odG1s0gF7aHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8wNC9wb2xpdGljcy92YWNjaW5lLXJ1bGUtbGFyZ2UtZW1wbG95ZXJzLWZlZGVyYWwtY29udHJhY3RvcnMtaGVhbHRoLWNhcmUtd29ya2Vycy9pbmRleC5odG1s?oc=5)
+---
