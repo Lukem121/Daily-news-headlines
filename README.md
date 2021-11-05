@@ -884,3 +884,6 @@
 ### **Vaccine rule for larger employers, federal contractors and certain health care workers to take effect January 4 - CNN**
 #### Thu, 04 Nov 2021 12:47:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMid2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8wNC9wb2xpdGljcy92YWNjaW5lLXJ1bGUtbGFyZ2UtZW1wbG95ZXJzLWZlZGVyYWwtY29udHJhY3RvcnMtaGVhbHRoLWNhcmUtd29ya2Vycy9pbmRleC5odG1s0gF7aHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8wNC9wb2xpdGljcy92YWNjaW5lLXJ1bGUtbGFyZ2UtZW1wbG95ZXJzLWZlZGVyYWwtY29udHJhY3RvcnMtaGVhbHRoLWNhcmUtd29ya2Vycy9pbmRleC5odG1s?oc=5)
 ---
+### **Infrastructure, spending bills could see House vote Friday as Democrats push ahead - The Washington Post**
+#### Fri, 05 Nov 2021 13:11:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS91cy1wb2xpY3kvMjAyMS8xMS8wNS9ob3VzZS1pbmZyYXN0cnVjdHVyZS1yZWNvbmNpbGlhdGlvbi12b3RlL9IBAA?oc=5)
+---
