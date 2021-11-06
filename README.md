@@ -887,3 +887,6 @@
 ### **Infrastructure, spending bills could see House vote Friday as Democrats push ahead - The Washington Post**
 #### Fri, 05 Nov 2021 13:11:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS91cy1wb2xpY3kvMjAyMS8xMS8wNS9ob3VzZS1pbmZyYXN0cnVjdHVyZS1yZWNvbmNpbGlhdGlvbi12b3RlL9IBAA?oc=5)
 ---
+### **These 6 House Democrats voted against the infrastructure bill. These 13 Republicans voted for it. - CNN**
+#### Sat, 06 Nov 2021 04:55:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8wNS9wb2xpdGljcy9pbmZyYXN0cnVjdHVyZS1iaWxsLWhvdXNlLWRlbW9jcmF0cy12b3RlZC1uby1yZXB1YmxpY2Fucy12b3RlZC15ZXMvaW5kZXguaHRtbNIBeWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTEvMDUvcG9saXRpY3MvaW5mcmFzdHJ1Y3R1cmUtYmlsbC1ob3VzZS1kZW1vY3JhdHMtdm90ZWQtbm8tcmVwdWJsaWNhbnMtdm90ZWQteWVzL2luZGV4Lmh0bWw?oc=5)
+---
