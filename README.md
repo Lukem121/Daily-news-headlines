@@ -890,3 +890,6 @@
 ### **These 6 House Democrats voted against the infrastructure bill. These 13 Republicans voted for it. - CNN**
 #### Sat, 06 Nov 2021 04:55:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8wNS9wb2xpdGljcy9pbmZyYXN0cnVjdHVyZS1iaWxsLWhvdXNlLWRlbW9jcmF0cy12b3RlZC1uby1yZXB1YmxpY2Fucy12b3RlZC15ZXMvaW5kZXguaHRtbNIBeWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTEvMDUvcG9saXRpY3MvaW5mcmFzdHJ1Y3R1cmUtYmlsbC1ob3VzZS1kZW1vY3JhdHMtdm90ZWQtbm8tcmVwdWJsaWNhbnMtdm90ZWQteWVzL2luZGV4Lmh0bWw?oc=5)
 ---
+### **Republicans criticize 13 colleagues who voted for infrastructure bill - Business Insider**
+#### Sun, 07 Nov 2021 04:25:17 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vcmVwdWJsaWNhbnMtY3JpdGljaXplLTEzLWNvbGxlYWd1ZXMtd2hvLXZvdGVkLWZvci1pbmZyYXN0cnVjdHVyZS1iaWxsLTIwMjEtMTHSAXFodHRwczovL3d3dy5idXNpbmVzc2luc2lkZXIuY29tL3JlcHVibGljYW5zLWNyaXRpY2l6ZS0xMy1jb2xsZWFndWVzLXdoby12b3RlZC1mb3ItaW5mcmFzdHJ1Y3R1cmUtYmlsbC0yMDIxLTExP2FtcA?oc=5)
+---
