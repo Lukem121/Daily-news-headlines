@@ -893,3 +893,6 @@
 ### **Republicans criticize 13 colleagues who voted for infrastructure bill - Business Insider**
 #### Sun, 07 Nov 2021 04:25:17 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LmJ1c2luZXNzaW5zaWRlci5jb20vcmVwdWJsaWNhbnMtY3JpdGljaXplLTEzLWNvbGxlYWd1ZXMtd2hvLXZvdGVkLWZvci1pbmZyYXN0cnVjdHVyZS1iaWxsLTIwMjEtMTHSAXFodHRwczovL3d3dy5idXNpbmVzc2luc2lkZXIuY29tL3JlcHVibGljYW5zLWNyaXRpY2l6ZS0xMy1jb2xsZWFndWVzLXdoby12b3RlZC1mb3ItaW5mcmFzdHJ1Y3R1cmUtYmlsbC0yMDIxLTExP2FtcA?oc=5)
 ---
+### **The U.S. lifts the pandemic travel ban and opens the doors to international visitors - NPR**
+#### Mon, 08 Nov 2021 10:30:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8xMS8wOC8xMDUzNDM0MjMyL3RoZS11LXMtbGlmdHMtdGhlLXBhbmRlbWljLXRyYXZlbC1iYW4tYW5kLW9wZW5zLXRoZS1kb29ycy10by1pbnRlcm5hdGlvbmFsLXZpc2l00gEA?oc=5)
+---
