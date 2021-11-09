@@ -896,3 +896,6 @@
 ### **The U.S. lifts the pandemic travel ban and opens the doors to international visitors - NPR**
 #### Mon, 08 Nov 2021 10:30:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiemh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMS8xMS8wOC8xMDUzNDM0MjMyL3RoZS11LXMtbGlmdHMtdGhlLXBhbmRlbWljLXRyYXZlbC1iYW4tYW5kLW9wZW5zLXRoZS1kb29ycy10by1pbnRlcm5hdGlvbmFsLXZpc2l00gEA?oc=5)
 ---
+### **Infrastructure bill to bring billions to Alaska for roads, ports and broadband. Here are some of the specifics. - Anchorage Daily News**
+#### Tue, 09 Nov 2021 03:22:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmFkbi5jb20vcG9saXRpY3MvMjAyMS8xMS8wOC9pbmZyYXN0cnVjdHVyZS1iaWxsLXRvLWJyaW5nLWJpbGxpb25zLXRvLWFsYXNrYS1mb3Itcm9hZHMtcG9ydHMtYW5kLWJyb2FkYmFuZC_SAQA?oc=5)
+---
