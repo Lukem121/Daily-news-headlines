@@ -899,3 +899,6 @@
 ### **Infrastructure bill to bring billions to Alaska for roads, ports and broadband. Here are some of the specifics. - Anchorage Daily News**
 #### Tue, 09 Nov 2021 03:22:37 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidmh0dHBzOi8vd3d3LmFkbi5jb20vcG9saXRpY3MvMjAyMS8xMS8wOC9pbmZyYXN0cnVjdHVyZS1iaWxsLXRvLWJyaW5nLWJpbGxpb25zLXRvLWFsYXNrYS1mb3Itcm9hZHMtcG9ydHMtYW5kLWJyb2FkYmFuZC_SAQA?oc=5)
 ---
+### **First Thing: Trump records can be given to Capitol attack panel - The Guardian**
+#### Wed, 10 Nov 2021 11:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzEwL2ZpcnN0LXRoaW5nLXRydW1wLXJlY29yZHMtY2FuLWJlLWdpdmVuLXRvLWNhcGl0b2wtYXR0YWNrLXBhbmVs0gFuaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9ub3YvMTAvZmlyc3QtdGhpbmctdHJ1bXAtcmVjb3Jkcy1jYW4tYmUtZ2l2ZW4tdG8tY2FwaXRvbC1hdHRhY2stcGFuZWw?oc=5)
+---
