@@ -902,3 +902,6 @@
 ### **First Thing: Trump records can be given to Capitol attack panel - The Guardian**
 #### Wed, 10 Nov 2021 11:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzEwL2ZpcnN0LXRoaW5nLXRydW1wLXJlY29yZHMtY2FuLWJlLWdpdmVuLXRvLWNhcGl0b2wtYXR0YWNrLXBhbmVs0gFuaHR0cHM6Ly9hbXAudGhlZ3VhcmRpYW4uY29tL3VzLW5ld3MvMjAyMS9ub3YvMTAvZmlyc3QtdGhpbmctdHJ1bXAtcmVjb3Jkcy1jYW4tYmUtZ2l2ZW4tdG8tY2FwaXRvbC1hdHRhY2stcGFuZWw?oc=5)
 ---
+### **First Thing: Kyle Rittenhouse case in jeopardy as lawyers seek mistrial - The Guardian**
+#### Thu, 11 Nov 2021 10:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzExL2ZpcnN0LXRoaW5nLWt5bGUtcml0dGVuaG91c2UtY2FzZS1qZW9wYXJkeS1sYXd5ZXJzLXNlZWstbWlzdHJpYWzSAQA?oc=5)
+---
