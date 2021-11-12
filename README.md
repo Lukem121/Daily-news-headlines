@@ -905,3 +905,6 @@
 ### **First Thing: Kyle Rittenhouse case in jeopardy as lawyers seek mistrial - The Guardian**
 #### Thu, 11 Nov 2021 10:37:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzExL2ZpcnN0LXRoaW5nLWt5bGUtcml0dGVuaG91c2UtY2FzZS1qZW9wYXJkeS1sYXd5ZXJzLXNlZWstbWlzdHJpYWzSAQA?oc=5)
 ---
+### **Kyle Rittenhouse's mom blasts Biden, claims he 'defamed' her son - New York Post **
+#### Fri, 12 Nov 2021 06:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzExLzEyL2t5bGUtcml0dGVuaG91c2VzLW1vbS13ZW5keS1yaXR0ZW5ob3VzZS1ibGFzdHMtYmlkZW4tY2xhaW1zLWhlLWRlZmFtZWQtaGVyLXNvbi_SAQA?oc=5)
+---
