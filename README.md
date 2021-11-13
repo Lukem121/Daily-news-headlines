@@ -908,3 +908,6 @@
 ### **Kyle Rittenhouse's mom blasts Biden, claims he 'defamed' her son - New York Post **
 #### Fri, 12 Nov 2021 06:49:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzExLzEyL2t5bGUtcml0dGVuaG91c2VzLW1vbS13ZW5keS1yaXR0ZW5ob3VzZS1ibGFzdHMtYmlkZW4tY2xhaW1zLWhlLWRlZmFtZWQtaGVyLXNvbi_SAQA?oc=5)
 ---
+### **Tech disputes at Rittenhouse trial not new issue for courts - ABC News**
+#### Sat, 13 Nov 2021 08:57:50 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vYWJjbmV3cy5nby5jb20vVVMvd2lyZVN0b3J5L3RlY2gtZGlzcHV0ZXMtcml0dGVuaG91c2UtdHJpYWwtaXNzdWUtY291cnRzLTgxMTQ3NzQx0gFdaHR0cHM6Ly9hYmNuZXdzLmdvLmNvbS9hbXAvVVMvd2lyZVN0b3J5L3RlY2gtZGlzcHV0ZXMtcml0dGVuaG91c2UtdHJpYWwtaXNzdWUtY291cnRzLTgxMTQ3NzQx?oc=5)
+---
