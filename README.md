@@ -911,3 +911,6 @@
 ### **Tech disputes at Rittenhouse trial not new issue for courts - ABC News**
 #### Sat, 13 Nov 2021 08:57:50 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vYWJjbmV3cy5nby5jb20vVVMvd2lyZVN0b3J5L3RlY2gtZGlzcHV0ZXMtcml0dGVuaG91c2UtdHJpYWwtaXNzdWUtY291cnRzLTgxMTQ3NzQx0gFdaHR0cHM6Ly9hYmNuZXdzLmdvLmNvbS9hbXAvVVMvd2lyZVN0b3J5L3RlY2gtZGlzcHV0ZXMtcml0dGVuaG91c2UtdHJpYWwtaXNzdWUtY291cnRzLTgxMTQ3NzQx?oc=5)
 ---
+### **COP26 Coal Deal: Role of US and China Hidden by India - Bloomberg**
+#### Sat, 13 Nov 2021 22:29:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIxLTExLTEzL2luZGlhLXMtbGFzdC1taW51dGUtY29hbC1kZWZlbnNlLWF0LWNvcDI2LWhpZC1yb2xlLW9mLWNoaW5hLXUtc9IBAA?oc=5)
+---
