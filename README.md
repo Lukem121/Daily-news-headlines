@@ -914,3 +914,6 @@
 ### **COP26 Coal Deal: Role of US and China Hidden by India - Bloomberg**
 #### Sat, 13 Nov 2021 22:29:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicmh0dHBzOi8vd3d3LmJsb29tYmVyZy5jb20vbmV3cy9hcnRpY2xlcy8yMDIxLTExLTEzL2luZGlhLXMtbGFzdC1taW51dGUtY29hbC1kZWZlbnNlLWF0LWNvcDI2LWhpZC1yb2xlLW9mLWNoaW5hLXUtc9IBAA?oc=5)
 ---
+### **Psaki does damage control for Kamala Harris' reputation as poll numbers plummet - Fox News**
+#### Mon, 15 Nov 2021 03:12:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3BzYWtpLWRvZXMtZGFtYWdlLWNvbnRyb2wtZm9yLWthbWFsYS1oYXJyaXMtcmVwdXRhdGlvbi1hcy1wb2xsLW51bWJlcnMtcGx1bW1ldNIBAA?oc=5)
+---
