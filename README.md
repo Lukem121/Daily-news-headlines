@@ -917,3 +917,6 @@
 ### **Psaki does damage control for Kamala Harris' reputation as poll numbers plummet - Fox News**
 #### Mon, 15 Nov 2021 03:12:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMib2h0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3BzYWtpLWRvZXMtZGFtYWdlLWNvbnRyb2wtZm9yLWthbWFsYS1oYXJyaXMtcmVwdXRhdGlvbi1hcy1wb2xsLW51bWJlcnMtcGx1bW1ldNIBAA?oc=5)
 ---
+### **First Thing: Biden and Xi warn each other over future of Taiwan - The Guardian**
+#### Tue, 16 Nov 2021 11:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzE2L2ZpcnN0LXRoaW5nLWJpZGVuLWFuZC14aS13YXJuLWVhY2gtb3RoZXItb3Zlci1mdXR1cmUtb2YtdGFpd2Fu0gEA?oc=5)
+---
