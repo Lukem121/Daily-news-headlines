@@ -920,3 +920,6 @@
 ### **First Thing: Biden and Xi warn each other over future of Taiwan - The Guardian**
 #### Tue, 16 Nov 2021 11:09:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvbm92LzE2L2ZpcnN0LXRoaW5nLWJpZGVuLWFuZC14aS13YXJuLWVhY2gtb3RoZXItb3Zlci1mdXR1cmUtb2YtdGFpd2Fu0gEA?oc=5)
 ---
+### **Jurors to begin second day of deliberations in Kyle Rittenhouse's homicide trial - CNN**
+#### Wed, 17 Nov 2021 06:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8xNy91cy9reWxlLXJpdHRlbmhvdXNlLXRyaWFsLXdlZG5lc2RheS9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8xNy91cy9reWxlLXJpdHRlbmhvdXNlLXRyaWFsLXdlZG5lc2RheS9pbmRleC5odG1s?oc=5)
+---
