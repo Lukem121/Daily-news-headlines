@@ -923,3 +923,6 @@
 ### **Jurors to begin second day of deliberations in Kyle Rittenhouse's homicide trial - CNN**
 #### Wed, 17 Nov 2021 06:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8xNy91cy9reWxlLXJpdHRlbmhvdXNlLXRyaWFsLXdlZG5lc2RheS9pbmRleC5odG1s0gFRaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8xNy91cy9reWxlLXJpdHRlbmhvdXNlLXRyaWFsLXdlZG5lc2RheS9pbmRleC5odG1s?oc=5)
 ---
+### **Paul Gosar censured over AOC video as he compares himself to Alexander Hamilton - The Independent**
+#### Thu, 18 Nov 2021 03:51:42 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtcG9saXRpY3MvcGF1bC1nb3Nhci1jYXJ0b29uLWFvYy1jZW5zdXJlLWIxOTU5NzAyLmh0bWzSAQA?oc=5)
+---
