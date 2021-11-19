@@ -926,3 +926,6 @@
 ### **Paul Gosar censured over AOC video as he compares himself to Alexander Hamilton - The Independent**
 #### Thu, 18 Nov 2021 03:51:42 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtcG9saXRpY3MvcGF1bC1nb3Nhci1jYXJ0b29uLWFvYy1jZW5zdXJlLWIxOTU5NzAyLmh0bWzSAQA?oc=5)
 ---
+### **Kevin McCarthy gives longest House floor speech in history delaying Build Back Better vote - CNN**
+#### Fri, 19 Nov 2021 12:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8xOC9wb2xpdGljcy9idWlsZC1iYWNrLWJldHRlci1ob3VzZS12b3RlL2luZGV4Lmh0bWzSAVNodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzExLzE4L3BvbGl0aWNzL2J1aWxkLWJhY2stYmV0dGVyLWhvdXNlLXZvdGUvaW5kZXguaHRtbA?oc=5)
+---
