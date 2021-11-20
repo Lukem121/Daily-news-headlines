@@ -929,3 +929,6 @@
 ### **Kevin McCarthy gives longest House floor speech in history delaying Build Back Better vote - CNN**
 #### Fri, 19 Nov 2021 12:01:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8xOC9wb2xpdGljcy9idWlsZC1iYWNrLWJldHRlci1ob3VzZS12b3RlL2luZGV4Lmh0bWzSAVNodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzExLzE4L3BvbGl0aWNzL2J1aWxkLWJhY2stYmV0dGVyLWhvdXNlLXZvdGUvaW5kZXguaHRtbA?oc=5)
 ---
+### **Here's what legal experts say helped acquit Kyle Rittenhouse - CNN**
+#### Sat, 20 Nov 2021 11:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8xOS91cy9sZWdhbC1leHBlcnRzLXdoYXQtaGVscGVkLXJpdHRlbmhvdXNlLWFjcXVpdHRhbC9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8xOS91cy9sZWdhbC1leHBlcnRzLXdoYXQtaGVscGVkLXJpdHRlbmhvdXNlLWFjcXVpdHRhbC9pbmRleC5odG1s?oc=5)
+---
