@@ -932,3 +932,6 @@
 ### **Here's what legal experts say helped acquit Kyle Rittenhouse - CNN**
 #### Sat, 20 Nov 2021 11:43:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8xOS91cy9sZWdhbC1leHBlcnRzLXdoYXQtaGVscGVkLXJpdHRlbmhvdXNlLWFjcXVpdHRhbC9pbmRleC5odG1s0gFgaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8xOS91cy9sZWdhbC1leHBlcnRzLXdoYXQtaGVscGVkLXJpdHRlbmhvdXNlLWFjcXVpdHRhbC9pbmRleC5odG1s?oc=5)
 ---
+### **Portland Crowd Eggs Justice Center, Clashes With Sheriff's Deputies After Kyle Rittenhouse Verdict - Willamette Week**
+#### Sun, 21 Nov 2021 01:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijgFodHRwczovL3d3dy53d2Vlay5jb20vbmV3cy9jb3VydHMvMjAyMS8xMS8yMC9wb3J0bGFuZC1jcm93ZC1lZ2dzLWp1c3RpY2UtY2VudGVyLWNsYXNoZXMtd2l0aC1zaGVyaWZmcy1kZXB1dGllcy1hZnRlci1reWxlLXJpdHRlbmhvdXNlLXZlcmRpY3Qv0gEA?oc=5)
+---
