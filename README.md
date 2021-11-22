@@ -935,3 +935,6 @@
 ### **Portland Crowd Eggs Justice Center, Clashes With Sheriff's Deputies After Kyle Rittenhouse Verdict - Willamette Week**
 #### Sun, 21 Nov 2021 01:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijgFodHRwczovL3d3dy53d2Vlay5jb20vbmV3cy9jb3VydHMvMjAyMS8xMS8yMC9wb3J0bGFuZC1jcm93ZC1lZ2dzLWp1c3RpY2UtY2VudGVyLWNsYXNoZXMtd2l0aC1zaGVyaWZmcy1kZXB1dGllcy1hZnRlci1reWxlLXJpdHRlbmhvdXNlLXZlcmRpY3Qv0gEA?oc=5)
 ---
+### **Five dead, 40 injured after SUV hits Wisconsin Christmas parade - Reuters**
+#### Mon, 22 Nov 2021 13:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL3VzL2d1bnNob3RzLWZpcmVkLWhvbGlkYXktcGFyYWRlLXdpc2NvbnNpbi1sb2NhbC1jYnMtYWZmaWxpYXRlLTIwMjEtMTEtMjEv0gEA?oc=5)
+---
