@@ -938,3 +938,6 @@
 ### **Five dead, 40 injured after SUV hits Wisconsin Christmas parade - Reuters**
 #### Mon, 22 Nov 2021 13:23:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL3VzL2d1bnNob3RzLWZpcmVkLWhvbGlkYXktcGFyYWRlLXdpc2NvbnNpbi1sb2NhbC1jYnMtYWZmaWxpYXRlLTIwMjEtMTEtMjEv0gEA?oc=5)
 ---
+### **Here's what we know about the suspect in the Waukesha parade tragedy - CNN**
+#### Tue, 23 Nov 2021 13:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8yMi91cy93aGF0LXdlLWtub3ctYWJvdXQtc3VzcGVjdC1pbi13YXVrZXNoYS1wYXJhZGUtdHJhZ2VkeS9pbmRleC5odG1s0gFmaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8yMi91cy93aGF0LXdlLWtub3ctYWJvdXQtc3VzcGVjdC1pbi13YXVrZXNoYS1wYXJhZGUtdHJhZ2VkeS9pbmRleC5odG1s?oc=5)
+---
