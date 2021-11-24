@@ -941,3 +941,6 @@
 ### **Here's what we know about the suspect in the Waukesha parade tragedy - CNN**
 #### Tue, 23 Nov 2021 13:12:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8yMi91cy93aGF0LXdlLWtub3ctYWJvdXQtc3VzcGVjdC1pbi13YXVrZXNoYS1wYXJhZGUtdHJhZ2VkeS9pbmRleC5odG1s0gFmaHR0cHM6Ly9hbXAuY25uLmNvbS9jbm4vMjAyMS8xMS8yMi91cy93aGF0LXdlLWtub3ctYWJvdXQtc3VzcGVjdC1pbi13YXVrZXNoYS1wYXJhZGUtdHJhZ2VkeS9pbmRleC5odG1s?oc=5)
 ---
+### **Wisconsin parade news – latest: Darrell Brooks appears in court as prosecutors announce sixth Waukesha victim - The Independent**
+#### Wed, 24 Nov 2021 09:54:49 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvY3JpbWUvd2lzY29uc2luLXdhdWtlc2hhLXZpY3RpbS1kYXJyZWxsLWJyb29rcy1saXZlLWIxOTYzMjg0Lmh0bWzSAXdodHRwczovL3d3dy5pbmRlcGVuZGVudC5jby51ay9uZXdzL3dvcmxkL2FtZXJpY2FzL2NyaW1lL3dpc2NvbnNpbi13YXVrZXNoYS12aWN0aW0tZGFycmVsbC1icm9va3MtbGl2ZS1iMTk2MzI4NC5odG1sP2FtcA?oc=5)
+---
