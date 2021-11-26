@@ -947,3 +947,6 @@
 ### **Jurors in the trial over Ahmaud Arbery's killing deliberated between charges of malice murder and felony murder. Here's what that means - CNN**
 #### Thu, 25 Nov 2021 11:21:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8yNS91cy9haG1hdWQtYXJiZXJ5LWtpbGxpbmctdHJpYWwtbWFsaWNlLWZlbG9ueS1tdXJkZXIvaW5kZXguaHRtbNIBYWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTEvMjUvdXMvYWhtYXVkLWFyYmVyeS1raWxsaW5nLXRyaWFsLW1hbGljZS1mZWxvbnktbXVyZGVyL2luZGV4Lmh0bWw?oc=5)
 ---
+### **A new Covid-19 variant could show immune evasion and enhanced transmissibility, South African scientists warn - CNN**
+#### Fri, 26 Nov 2021 10:16:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8yNS93b3JsZC9jb3ZpZC12YXJpYW50LXNvdXRoLWFmcmljYS1pbW11bmUtZXZhc2lvbi10cmFuc21pc3NpYmlsaXR5L2luZGV4Lmh0bWzSAW5odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzExLzI1L3dvcmxkL2NvdmlkLXZhcmlhbnQtc291dGgtYWZyaWNhLWltbXVuZS1ldmFzaW9uLXRyYW5zbWlzc2liaWxpdHkvaW5kZXguaHRtbA?oc=5)
+---
