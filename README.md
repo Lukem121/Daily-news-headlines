@@ -950,3 +950,6 @@
 ### **A new Covid-19 variant could show immune evasion and enhanced transmissibility, South African scientists warn - CNN**
 #### Fri, 26 Nov 2021 10:16:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMS8yNS93b3JsZC9jb3ZpZC12YXJpYW50LXNvdXRoLWFmcmljYS1pbW11bmUtZXZhc2lvbi10cmFuc21pc3NpYmlsaXR5L2luZGV4Lmh0bWzSAW5odHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzExLzI1L3dvcmxkL2NvdmlkLXZhcmlhbnQtc291dGgtYWZyaWNhLWltbXVuZS1ldmFzaW9uLXRyYW5zbWlzc2liaWxpdHkvaW5kZXguaHRtbA?oc=5)
 ---
+### **Covid: Dozens test positive on SA-Netherlands flights - BBC News**
+#### Sat, 27 Nov 2021 10:38:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiLmh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC1ldXJvcGUtNTk0NDIxNDnSATJodHRwczovL3d3dy5iYmMuY29tL25ld3Mvd29ybGQtZXVyb3BlLTU5NDQyMTQ5LmFtcA?oc=5)
+---
