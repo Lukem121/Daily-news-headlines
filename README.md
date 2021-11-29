@@ -956,3 +956,6 @@
 ### **Dozens on S Africa flights test positive for COVID in Netherlands - Aljazeera.com**
 #### Sun, 28 Nov 2021 05:05:45 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3LmFsamF6ZWVyYS5jb20vbmV3cy8yMDIxLzExLzI4L2RvemVucy1vbi1zLWFmcmljYS1mbGlnaHRzLXRlc3QtcG9zaXRpdmUtZm9yLWNvdmlkLWluLW5ldGhlcmxhbmRz0gFvaHR0cHM6Ly93d3cuYWxqYXplZXJhLmNvbS9hbXAvbmV3cy8yMDIxLzExLzI4L2RvemVucy1vbi1zLWFmcmljYS1mbGlnaHRzLXRlc3QtcG9zaXRpdmUtZm9yLWNvdmlkLWluLW5ldGhlcmxhbmRz?oc=5)
 ---
+### **Omicron coronavirus variant poses 'very high' global risk, WHO warns - The Washington Post**
+#### Mon, 29 Nov 2021 13:29:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzExLzI5L3doby1vbWljcm9uLXZhcmlhbnQtZ2xvYmFsLXJpc2sv0gEA?oc=5)
+---
