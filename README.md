@@ -959,3 +959,6 @@
 ### **Omicron coronavirus variant poses 'very high' global risk, WHO warns - The Washington Post**
 #### Mon, 29 Nov 2021 13:29:06 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzExLzI5L3doby1vbWljcm9uLXZhcmlhbnQtZ2xvYmFsLXJpc2sv0gEA?oc=5)
 ---
+### **Covid: Omicron lockdown not needed for now, Biden says - BBC News**
+#### Tue, 30 Nov 2021 07:02:38 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC11cy1jYW5hZGEtNTk0Njk0ODbSAQA?oc=5)
+---
