@@ -962,3 +962,6 @@
 ### **Covid: Omicron lockdown not needed for now, Biden says - BBC News**
 #### Tue, 30 Nov 2021 07:02:38 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC11cy1jYW5hZGEtNTk0Njk0ODbSAQA?oc=5)
 ---
+### **Oxford School Shooting: What We Know - The New York Times**
+#### Wed, 01 Dec 2021 12:46:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMDEvdXMvb3hmb3JkLXNjaG9vbC1zaG9vdGluZy1taWNoaWdhbi5odG1s0gFOaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8xMi8wMS91cy9veGZvcmQtc2Nob29sLXNob290aW5nLW1pY2hpZ2FuLmFtcC5odG1s?oc=5)
+---
