@@ -965,3 +965,6 @@
 ### **Oxford School Shooting: What We Know - The New York Times**
 #### Wed, 01 Dec 2021 12:46:31 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMDEvdXMvb3hmb3JkLXNjaG9vbC1zaG9vdGluZy1taWNoaWdhbi5odG1s0gFOaHR0cHM6Ly93d3cubnl0aW1lcy5jb20vMjAyMS8xMi8wMS91cy9veGZvcmQtc2Nob29sLXNob290aW5nLW1pY2hpZ2FuLmFtcC5odG1s?oc=5)
 ---
+### **Investigators reveal concerns about behavior of Michigan high school shooting suspect leading up to the tragedy - CNN**
+#### Thu, 02 Dec 2021 11:44:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wMi91cy9taWNoaWdhbi1veGZvcmQtaGlnaC1zY2hvb2wtc2hvb3RpbmctdGh1cnNkYXkvaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTIvMDIvdXMvbWljaGlnYW4tb3hmb3JkLWhpZ2gtc2Nob29sLXNob290aW5nLXRodXJzZGF5L2luZGV4Lmh0bWw?oc=5)
+---
