@@ -971,3 +971,6 @@
 ### **With Omicron, officials push COVID testing during holidays - Los Angeles Times**
 #### Fri, 03 Dec 2021 03:11:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3LmxhdGltZXMuY29tL2NhbGlmb3JuaWEvc3RvcnkvMjAyMS0xMi0wMi9sLWEtY291bnR5LXJlY29yZHMtZmlyc3QtY2FzZS1vZi1vbWljcm9uLXZhcmlhbnTSAW5odHRwczovL3d3dy5sYXRpbWVzLmNvbS9jYWxpZm9ybmlhL3N0b3J5LzIwMjEtMTItMDIvbC1hLWNvdW50eS1yZWNvcmRzLWZpcnN0LWNhc2Utb2Ytb21pY3Jvbi12YXJpYW50P19hbXA9dHJ1ZQ?oc=5)
 ---
+### **Parents of alleged Michigan school shooter arrested after manhunt - CNN**
+#### Sat, 04 Dec 2021 12:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wNC91cy9taWNoaWdhbi1veGZvcmQtaGlnaC1zY2hvb2wtc2hvb3Rpbmctc2F0dXJkYXkvaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTIvMDQvdXMvbWljaGlnYW4tb3hmb3JkLWhpZ2gtc2Nob29sLXNob290aW5nLXNhdHVyZGF5L2luZGV4Lmh0bWw?oc=5)
+---
