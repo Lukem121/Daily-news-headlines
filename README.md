@@ -974,3 +974,6 @@
 ### **Parents of alleged Michigan school shooter arrested after manhunt - CNN**
 #### Sat, 04 Dec 2021 12:54:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wNC91cy9taWNoaWdhbi1veGZvcmQtaGlnaC1zY2hvb2wtc2hvb3Rpbmctc2F0dXJkYXkvaW5kZXguaHRtbNIBXmh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTIvMDQvdXMvbWljaGlnYW4tb3hmb3JkLWhpZ2gtc2Nob29sLXNob290aW5nLXNhdHVyZGF5L2luZGV4Lmh0bWw?oc=5)
 ---
+### **School district releases details of key events leading up to Michigan shooting - CNN**
+#### Sun, 05 Dec 2021 12:05:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wNS91cy9taWNoaWdhbi1veGZvcmQtaGlnaC1zY2hvb2wtc2hvb3Rpbmctc3VuZGF5L2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEyLzA1L3VzL21pY2hpZ2FuLW94Zm9yZC1oaWdoLXNjaG9vbC1zaG9vdGluZy1zdW5kYXkvaW5kZXguaHRtbA?oc=5)
+---
