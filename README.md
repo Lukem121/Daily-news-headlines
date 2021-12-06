@@ -977,3 +977,6 @@
 ### **School district releases details of key events leading up to Michigan shooting - CNN**
 #### Sun, 05 Dec 2021 12:05:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wNS91cy9taWNoaWdhbi1veGZvcmQtaGlnaC1zY2hvb2wtc2hvb3Rpbmctc3VuZGF5L2luZGV4Lmh0bWzSAVxodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIxLzEyLzA1L3VzL21pY2hpZ2FuLW94Zm9yZC1oaWdoLXNjaG9vbC1zaG9vdGluZy1zdW5kYXkvaW5kZXguaHRtbA?oc=5)
 ---
+### **Biden administration expected to announce diplomatic boycott of Beijing Olympics this week - CNN**
+#### Mon, 06 Dec 2021 09:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wNS9wb2xpdGljcy9iaWRlbi1iZWlqaW5nLW9seW1waWNzLWJveWNvdHQvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTIvMDUvcG9saXRpY3MvYmlkZW4tYmVpamluZy1vbHltcGljcy1ib3ljb3R0L2luZGV4Lmh0bWw?oc=5)
+---
