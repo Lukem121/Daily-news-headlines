@@ -980,3 +980,6 @@
 ### **Biden administration expected to announce diplomatic boycott of Beijing Olympics this week - CNN**
 #### Mon, 06 Dec 2021 09:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8wNS9wb2xpdGljcy9iaWRlbi1iZWlqaW5nLW9seW1waWNzLWJveWNvdHQvaW5kZXguaHRtbNIBVWh0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjEvMTIvMDUvcG9saXRpY3MvYmlkZW4tYmVpamluZy1vbHltcGljcy1ib3ljb3R0L2luZGV4Lmh0bWw?oc=5)
 ---
+### **What you need to know about the Biden-Putin call and Russia-Ukraine tensions - The Washington Post**
+#### Tue, 07 Dec 2021 12:25:40 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzEyLzA3L3J1c3NpYS11a3JhaW5lLWJpZGVuLXB1dGluLWNhbGwv0gEA?oc=5)
+---
