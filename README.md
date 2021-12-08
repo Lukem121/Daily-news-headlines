@@ -983,3 +983,6 @@
 ### **What you need to know about the Biden-Putin call and Russia-Ukraine tensions - The Washington Post**
 #### Tue, 07 Dec 2021 12:25:40 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzEyLzA3L3J1c3NpYS11a3JhaW5lLWJpZGVuLXB1dGluLWNhbGwv0gEA?oc=5)
 ---
+### **Video About Christmas Party Drops Boris Johnson Into Another Mess - The New York Times**
+#### Wed, 08 Dec 2021 13:14:42 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMDgvd29ybGQvYm9yaXMtam9obnNvbi1jaHJpc3RtYXMtY29yb25hdmlydXMuaHRtbNIBAA?oc=5)
+---
