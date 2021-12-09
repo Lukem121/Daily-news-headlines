@@ -986,3 +986,6 @@
 ### **Video About Christmas Party Drops Boris Johnson Into Another Mess - The New York Times**
 #### Wed, 08 Dec 2021 13:14:42 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMDgvd29ybGQvYm9yaXMtam9obnNvbi1jaHJpc3RtYXMtY29yb25hdmlydXMuaHRtbNIBAA?oc=5)
 ---
+### **U.S. Senate passes Republican bill to overturn Biden vaccine mandate - Reuters**
+#### Thu, 09 Dec 2021 10:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMie2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL3VzL3NlbmF0ZS1yZXB1YmxpY2FuLXB1c2gtYmxvY2stYmlkZW5zLXZhY2NpbmUtbWFuZGF0ZS1zZWN1cmVzLWRlbW9jcmF0aWMtc3VwcG9ydC0yMDIxLTEyLTA4L9IBAA?oc=5)
+---
