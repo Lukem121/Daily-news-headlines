@@ -989,3 +989,6 @@
 ### **U.S. Senate passes Republican bill to overturn Biden vaccine mandate - Reuters**
 #### Thu, 09 Dec 2021 10:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMie2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL3VzL3NlbmF0ZS1yZXB1YmxpY2FuLXB1c2gtYmxvY2stYmlkZW5zLXZhY2NpbmUtbWFuZGF0ZS1zZWN1cmVzLWRlbW9jcmF0aWMtc3VwcG9ydC0yMDIxLTEyLTA4L9IBAA?oc=5)
 ---
+### **Mexico Migrant Truck Crash Leaves at Least 54 Dead - The New York Times**
+#### Fri, 10 Dec 2021 12:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMDkvd29ybGQvYW1lcmljYXMvbWV4aWNvLW1pZ3JhbnRzLWtpbGxlZC1hY2NpZGVudC5odG1s0gEA?oc=5)
+---
