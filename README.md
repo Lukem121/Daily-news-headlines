@@ -992,3 +992,6 @@
 ### **Mexico Migrant Truck Crash Leaves at Least 54 Dead - The New York Times**
 #### Fri, 10 Dec 2021 12:20:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMDkvd29ybGQvYW1lcmljYXMvbWV4aWNvLW1pZ3JhbnRzLWtpbGxlZC1hY2NpZGVudC5odG1s0gEA?oc=5)
 ---
+### **At least 50 likely dead in Kentucky alone, governor says, after tornadoes hit central and southern US - CNN**
+#### Sat, 11 Dec 2021 13:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8xMS93ZWF0aGVyL3NldmVyZS13ZWF0aGVyLXRvcm5hZG9lcy1zYXR1cmRheS9pbmRleC5odG1s0gEA?oc=5)
+---
