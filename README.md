@@ -995,3 +995,6 @@
 ### **At least 50 likely dead in Kentucky alone, governor says, after tornadoes hit central and southern US - CNN**
 #### Sat, 11 Dec 2021 13:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiU2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8xMS93ZWF0aGVyL3NldmVyZS13ZWF0aGVyLXRvcm5hZG9lcy1zYXR1cmRheS9pbmRleC5odG1s0gEA?oc=5)
 ---
+### **Tornadoes Tear Through South and Midwest, With at Least 70 Dead in Kentucky - The New York Times**
+#### Sun, 12 Dec 2021 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMTEvdXMva2VudHVja3ktZGVhZGx5LXRvcm5hZG9lcy5odG1s0gEA?oc=5)
+---
