@@ -998,3 +998,6 @@
 ### **Tornadoes Tear Through South and Midwest, With at Least 70 Dead in Kentucky - The New York Times**
 #### Sun, 12 Dec 2021 13:07:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMTEvdXMva2VudHVja3ktZGVhZGx5LXRvcm5hZG9lcy5odG1s0gEA?oc=5)
 ---
+### **Kentucky tornadoes: At least 80 likely killed in storms - WLWT Cincinnati**
+#### Mon, 13 Dec 2021 10:52:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3Lndsd3QuY29tL2FydGljbGUvd2VzdGVybi1rZW50dWNreS10b3JuYWRvLW1heWZpZWxkLWJvd2xpbmctZ3JlZW4td2VhdGhlci1iZXNoZWFyaS0xNjM5MzQ0MDY5LzM4NDk1NzQ00gEA?oc=5)
+---
