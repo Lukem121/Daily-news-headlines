@@ -1004,3 +1004,6 @@
 ### **Trump Jr sent desperate texts to Meadows on Jan 6 urging Trump to act - The Independent**
 #### Tue, 14 Dec 2021 02:51:36 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtcG9saXRpY3MvbWVhZG93cy1kb25hbGQtdHJ1bXAtanItY2FwaXRvbC1yaW90LWIxOTc1NDg2Lmh0bWzSAQA?oc=5)
 ---
+### **Mark Meadows: House votes to recommend criminal contempt charges against Trump ex-chief of staff - The Guardian**
+#### Wed, 15 Dec 2021 12:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvZGVjLzE1L21hcmstbWVhZG93cy1ob3VzZS12b3Rlcy1jcmltaW5hbC1jb250ZW1wdNIBAA?oc=5)
+---
