@@ -1007,3 +1007,6 @@
 ### **Mark Meadows: House votes to recommend criminal contempt charges against Trump ex-chief of staff - The Guardian**
 #### Wed, 15 Dec 2021 12:41:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWmh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvZGVjLzE1L21hcmstbWVhZG93cy1ob3VzZS12b3Rlcy1jcmltaW5hbC1jb250ZW1wdNIBAA?oc=5)
 ---
+### **More hurricane-force wind gusts were reported across the US in a single day than ever before - CNN**
+#### Thu, 16 Dec 2021 11:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8xNi93ZWF0aGVyL2V4dHJlbWUtd2VhdGhlci1jZW50cmFsLXVzLXRodXJzZGF5L2luZGV4Lmh0bWzSAQA?oc=5)
+---
