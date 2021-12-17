@@ -1010,3 +1010,6 @@
 ### **More hurricane-force wind gusts were reported across the US in a single day than ever before - CNN**
 #### Thu, 16 Dec 2021 11:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMS8xMi8xNi93ZWF0aGVyL2V4dHJlbWUtd2VhdGhlci1jZW50cmFsLXVzLXRodXJzZGF5L2luZGV4Lmh0bWzSAQA?oc=5)
 ---
+### **School shooting, bomb threat on TikTok warning of December 17 attacks has Chicago area districts taking precautions - WLS-TV**
+#### Fri, 17 Dec 2021 10:52:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vYWJjN2NoaWNhZ28uY29tL3Rpa3Rvay1zY2hvb2wtdGhyZWF0LWRlY2VtYmVyLTE3LXNob290aW5nLWJvbWItc29jaWFsLW1lZGlhLXRvLXNjaG9vbHMvMTEzNTEyOTAv0gFsaHR0cHM6Ly9hYmM3Y2hpY2Fnby5jb20vYW1wL3Rpa3Rvay1zY2hvb2wtdGhyZWF0LWRlY2VtYmVyLTE3LXNob290aW5nLWJvbWItc29jaWFsLW1lZGlhLXRvLXNjaG9vbHMvMTEzNTEyOTAv?oc=5)
+---
