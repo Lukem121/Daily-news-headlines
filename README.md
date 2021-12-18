@@ -1013,3 +1013,6 @@
 ### **School shooting, bomb threat on TikTok warning of December 17 attacks has Chicago area districts taking precautions - WLS-TV**
 #### Fri, 17 Dec 2021 10:52:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaGh0dHBzOi8vYWJjN2NoaWNhZ28uY29tL3Rpa3Rvay1zY2hvb2wtdGhyZWF0LWRlY2VtYmVyLTE3LXNob290aW5nLWJvbWItc29jaWFsLW1lZGlhLXRvLXNjaG9vbHMvMTEzNTEyOTAv0gFsaHR0cHM6Ly9hYmM3Y2hpY2Fnby5jb20vYW1wL3Rpa3Rvay1zY2hvb2wtdGhyZWF0LWRlY2VtYmVyLTE3LXNob290aW5nLWJvbWItc29jaWFsLW1lZGlhLXRvLXNjaG9vbHMvMTEzNTEyOTAv?oc=5)
 ---
+### **U.S. COVID-19 vaccine mandate revived, Supreme Court showdown looms - Reuters**
+#### Sat, 18 Dec 2021 11:51:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL3d3dy5yZXV0ZXJzLmNvbS9idXNpbmVzcy9oZWFsdGhjYXJlLXBoYXJtYWNldXRpY2Fscy91cy1hcHBlYWxzLWNvdXJ0LXJlaW5zdGF0ZXMtY292aWQtMTktdmFjY2luZS1vci10ZXN0LXJ1bGUtdXMtd29ya3BsYWNlcy0yMDIxLTEyLTE4L9IBAA?oc=5)
+---
