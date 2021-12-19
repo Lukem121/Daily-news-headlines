@@ -1016,3 +1016,6 @@
 ### **U.S. COVID-19 vaccine mandate revived, Supreme Court showdown looms - Reuters**
 #### Sat, 18 Dec 2021 11:51:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijwFodHRwczovL3d3dy5yZXV0ZXJzLmNvbS9idXNpbmVzcy9oZWFsdGhjYXJlLXBoYXJtYWNldXRpY2Fscy91cy1hcHBlYWxzLWNvdXJ0LXJlaW5zdGF0ZXMtY292aWQtMTktdmFjY2luZS1vci10ZXN0LXJ1bGUtdXMtd29ya3BsYWNlcy0yMDIxLTEyLTE4L9IBAA?oc=5)
 ---
+### **Biden to Address Nation About Omicron on Tuesday - The New York Times**
+#### Sun, 19 Dec 2021 03:26:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMTgvd29ybGQvYmlkZW4tbmF0aW9uYWwtYWRkcmVzcy1vbi1vbWljcm9uLmh0bWzSAQA?oc=5)
+---
