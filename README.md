@@ -1019,3 +1019,6 @@
 ### **Biden to Address Nation About Omicron on Tuesday - The New York Times**
 #### Sun, 19 Dec 2021 03:26:48 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiT2h0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjEvMTIvMTgvd29ybGQvYmlkZW4tbmF0aW9uYWwtYWRkcmVzcy1vbi1vbWljcm9uLmh0bWzSAQA?oc=5)
 ---
+### **White House blasts Manchin's "inexplicable reversal" on Build Back Better Act - CBS News**
+#### Mon, 20 Dec 2021 12:43:02 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvbWFuY2hpbi1iaWRlbi1idWlsZC1iYWNrLWJldHRlci13aGl0ZS1ob3VzZS1yZXNwb25zZS_SAQA?oc=5)
+---
