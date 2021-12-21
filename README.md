@@ -1022,3 +1022,6 @@
 ### **White House blasts Manchin's "inexplicable reversal" on Build Back Better Act - CBS News**
 #### Mon, 20 Dec 2021 12:43:02 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3LmNic25ld3MuY29tL25ld3MvbWFuY2hpbi1iaWRlbi1idWlsZC1iYWNrLWJldHRlci13aGl0ZS1ob3VzZS1yZXNwb25zZS_SAQA?oc=5)
 ---
+### **Coronavirus live updates and omicron variant news - The Washington Post**
+#### Tue, 21 Dec 2021 13:02:13 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9uYXRpb24vMjAyMS8xMi8yMS9jb3ZpZC1vbWljcm9uLXZhcmlhbnQtbGl2ZS11cGRhdGVzL9IBAA?oc=5)
+---
