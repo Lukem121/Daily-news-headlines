@@ -1028,3 +1028,6 @@
 ### **Trump 'very appreciative' of Biden's praise for Operation Warp Speed - New York Post **
 #### Wed, 22 Dec 2021 02:29:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiYGh0dHBzOi8vbnlwb3N0LmNvbS8yMDIxLzEyLzIxL3RydW1wLXZlcnktYXBwcmVjaWF0aXZlLW9mLWJpZGVucy1wcmFpc2UtZm9yLW9wZXJhdGlvbi13YXJwLXNwZWVkL9IBAA?oc=5)
 ---
+### **Amid fears Russia will invade Ukraine, Putin points finger at U.S. and NATO in marathon news conference - The Washington Post**
+#### Thu, 23 Dec 2021 12:22:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzEyLzIzL3B1dGluLXJ1c3NpYS11a3JhaW5lLWNvbmZsaWN0LWNvbmZlcm5lY2Uv0gEA?oc=5)
+---
