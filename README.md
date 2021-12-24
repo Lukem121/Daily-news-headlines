@@ -1031,3 +1031,6 @@
 ### **Amid fears Russia will invade Ukraine, Putin points finger at U.S. and NATO in marathon news conference - The Washington Post**
 #### Thu, 23 Dec 2021 12:22:30 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS93b3JsZC8yMDIxLzEyLzIzL3B1dGluLXJ1c3NpYS11a3JhaW5lLWNvbmZsaWN0LWNvbmZlcm5lY2Uv0gEA?oc=5)
 ---
+### **Los Angeles police kill girl, 14, when firing at suspect in clothing store - The Guardian**
+#### Fri, 24 Dec 2021 10:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvZGVjLzI0L2xvcy1hbmdlbGVzLXBvbGljZS1raWxsLWdpcmwtMTQtd2hlbi1maXJpbmctYXQtc3VzcGVjdC1pbi1jbG90aGluZy1zdG9yZdIBAA?oc=5)
+---
