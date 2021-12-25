@@ -1034,3 +1034,6 @@
 ### **Los Angeles police kill girl, 14, when firing at suspect in clothing store - The Guardian**
 #### Fri, 24 Dec 2021 10:28:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieGh0dHBzOi8vd3d3LnRoZWd1YXJkaWFuLmNvbS91cy1uZXdzLzIwMjEvZGVjLzI0L2xvcy1hbmdlbGVzLXBvbGljZS1raWxsLWdpcmwtMTQtd2hlbi1maXJpbmctYXQtc3VzcGVjdC1pbi1jbG90aGluZy1zdG9yZdIBAA?oc=5)
 ---
+### **LAPD tactics scrutinized after fatal shooting in dressing room - Los Angeles Times**
+#### Sat, 25 Dec 2021 02:40:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5sYXRpbWVzLmNvbS9jYWxpZm9ybmlhL3N0b3J5LzIwMjEtMTItMjQvYS1naXJsLXRyeWluZy1vbi1jbG90aGVzLWEtY29wLWFuZC1hLXNob2NraW5nLXNob290aW5nLWF0LWJ1cmxpbmd0b24tZHJlc3Npbmctcm9vbdIBAA?oc=5)
+---
