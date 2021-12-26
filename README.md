@@ -1037,3 +1037,6 @@
 ### **LAPD tactics scrutinized after fatal shooting in dressing room - Los Angeles Times**
 #### Sat, 25 Dec 2021 02:40:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5sYXRpbWVzLmNvbS9jYWxpZm9ybmlhL3N0b3J5LzIwMjEtMTItMjQvYS1naXJsLXRyeWluZy1vbi1jbG90aGVzLWEtY29wLWFuZC1hLXNob2NraW5nLXNob290aW5nLWF0LWJ1cmxpbmd0b24tZHJlc3Npbmctcm9vbdIBAA?oc=5)
 ---
+### **Nobel Prize-winning anti-apartheid hero Desmond Tutu dies aged 90 - Reuters**
+#### Sun, 26 Dec 2021 13:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL2FmcmljYS9zb3V0aC1hZnJpY2FzLWFyY2hiaXNob3AtZGVzbW9uZC10dXR1LWRpZXMtYWdlZC05MC0yMDIxLTEyLTI2L9IBAA?oc=5)
+---
