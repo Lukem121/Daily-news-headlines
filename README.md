@@ -1040,3 +1040,6 @@
 ### **Nobel Prize-winning anti-apartheid hero Desmond Tutu dies aged 90 - Reuters**
 #### Sun, 26 Dec 2021 13:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiY2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL2FmcmljYS9zb3V0aC1hZnJpY2FzLWFyY2hiaXNob3AtZGVzbW9uZC10dXR1LWRpZXMtYWdlZC05MC0yMDIxLTEyLTI2L9IBAA?oc=5)
 ---
+### **Covid-19 and Vaccine News: Live Updates - The New York Times**
+#### Mon, 27 Dec 2021 13:18:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMS8xMi8yNy93b3JsZC9vbWljcm9uLWNvdmlkLXZhY2NpbmUtdGVzdHPSAQA?oc=5)
+---
