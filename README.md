@@ -1043,3 +1043,6 @@
 ### **Covid-19 and Vaccine News: Live Updates - The New York Times**
 #### Mon, 27 Dec 2021 13:18:46 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSWh0dHBzOi8vd3d3Lm55dGltZXMuY29tL2xpdmUvMjAyMS8xMi8yNy93b3JsZC9vbWljcm9uLWNvdmlkLXZhY2NpbmUtdGVzdHPSAQA?oc=5)
 ---
+### **Gunman kills four in Denver-area shooting spree before he is killed by police - Reuters**
+#### Tue, 28 Dec 2021 12:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMie2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL3VzL2d1bm1hbi1zbGF5cy00LXBlb3BsZS1kZW52ZXItYXJlYS1zaG9vdGluZy1zcHJlZS1iZWZvcmUtaGUtaXMta2lsbGVkLWJ5LXBvbGljZS0yMDIxLTEyLTI4L9IBAA?oc=5)
+---
