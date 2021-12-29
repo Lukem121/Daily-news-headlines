@@ -1046,3 +1046,6 @@
 ### **Gunman kills four in Denver-area shooting spree before he is killed by police - Reuters**
 #### Tue, 28 Dec 2021 12:19:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMie2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL3VzL2d1bm1hbi1zbGF5cy00LXBlb3BsZS1kZW52ZXItYXJlYS1zaG9vdGluZy1zcHJlZS1iZWZvcmUtaGUtaXMta2lsbGVkLWJ5LXBvbGljZS0yMDIxLTEyLTI4L9IBAA?oc=5)
 ---
+### **Harry Reid, Former Democratic Senate Majority Leader, Dies at Age 82 - The Wall Street Journal**
+#### Wed, 29 Dec 2021 04:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvaGFycnktcmVpZC1mb3JtZXItZGVtb2NyYXRpYy1zZW5hdGUtbWFqb3JpdHktbGVhZGVyLWRpZXMtYXQtYWdlLTgyLTExNjQwNzQxNjI00gEA?oc=5)
+---
