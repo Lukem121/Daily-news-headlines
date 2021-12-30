@@ -1049,3 +1049,6 @@
 ### **Harry Reid, Former Democratic Senate Majority Leader, Dies at Age 82 - The Wall Street Journal**
 #### Wed, 29 Dec 2021 04:10:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMia2h0dHBzOi8vd3d3Lndzai5jb20vYXJ0aWNsZXMvaGFycnktcmVpZC1mb3JtZXItZGVtb2NyYXRpYy1zZW5hdGUtbWFqb3JpdHktbGVhZGVyLWRpZXMtYXQtYWdlLTgyLTExNjQwNzQxNjI00gEA?oc=5)
 ---
+### **Ghislaine Maxwell trial: Jeffrey Epstein associate convicted of sex trafficking - NBC News**
+#### Thu, 30 Dec 2021 13:21:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvdXMtbmV3cy9naGlzbGFpbmUtbWF4d2VsbC10cmlhbC12ZXJkaWN0LXJlYWNoZWQtZ2hpc2xhaW5lLW1heHdlbGwtc2V4LXRyYWZmaWNrLXJjbmE5NDc50gEA?oc=5)
+---
