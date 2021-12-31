@@ -1052,3 +1052,6 @@
 ### **Ghislaine Maxwell trial: Jeffrey Epstein associate convicted of sex trafficking - NBC News**
 #### Thu, 30 Dec 2021 13:21:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMidGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvdXMtbmV3cy9naGlzbGFpbmUtbWF4d2VsbC10cmlhbC12ZXJkaWN0LXJlYWNoZWQtZ2hpc2xhaW5lLW1heHdlbGwtc2V4LXRyYWZmaWNrLXJjbmE5NDc50gEA?oc=5)
 ---
+### **'Absolutely devastating' Colorado wildfire burns hundreds of homes near Boulder - NBC News**
+#### Fri, 31 Dec 2021 12:17:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd2VhdGhlci9saWZlLXRocmVhdGVuaW5nLWNvbG9yYWRvLXdpbGRmaXJlcy10cmlnZ2VyLWV2YWN1YXRpb25zLWJvdWxkZXItYXJlYS1yY25hMTA0NzXSASpodHRwczovL3d3dy5uYmNuZXdzLmNvbS9uZXdzL2FtcC9yY25hMTA0NzU?oc=5)
+---
