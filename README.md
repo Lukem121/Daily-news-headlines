@@ -1058,3 +1058,6 @@
 ### **How climate change primed Colorado for a rare December wildfire - NBC News**
 #### Sat, 01 Jan 2022 09:30:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiZGh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3MvdXMtbmV3cy9jbGltYXRlLWNoYW5nZS1wcmltZWQtY29sb3JhZG8tcmFyZS1kZWNlbWJlci13aWxkZmlyZS1yY25hMTA1NDPSAQA?oc=5)
 ---
+### **Three people missing and feared dead from fierce Colorado wildfire - Reuters**
+#### Sun, 02 Jan 2022 09:27:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LnJldXRlcnMuY29tL21hcmtldHMvY29tbW9kaXRpZXMvdGhyZWUtcGVvcGxlLW1pc3NpbmctZmVhcmVkLWRlYWQtZmllcmNlLWNvbG9yYWRvLXdpbGRmaXJlLTIwMjItMDEtMDIv0gEA?oc=5)
+---
