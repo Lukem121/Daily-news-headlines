@@ -1061,3 +1061,6 @@
 ### **Three people missing and feared dead from fierce Colorado wildfire - Reuters**
 #### Sun, 02 Jan 2022 09:27:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicWh0dHBzOi8vd3d3LnJldXRlcnMuY29tL21hcmtldHMvY29tbW9kaXRpZXMvdGhyZWUtcGVvcGxlLW1pc3NpbmctZmVhcmVkLWRlYWQtZmllcmNlLWNvbG9yYWRvLXdpbGRmaXJlLTIwMjItMDEtMDIv0gEA?oc=5)
 ---
+### **How the media must fight for American democracy: Atlantic, NPR, AP offer lessons - The Washington Post**
+#### Mon, 03 Jan 2022 13:16:05 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiUmh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9tZWRpYS8yMDIyLzAxLzAzL21lZGlhLWRlbW9jcmFjeS1qYW42LWF0bGFudGljLW5wci_SAQA?oc=5)
+---
