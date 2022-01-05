@@ -1067,3 +1067,6 @@
 ### **‘Never Seen Anything Like It': Drivers Stranded Overnight on I-95 in Virginia After Snowstorm - NBC4 Washington**
 #### Tue, 04 Jan 2022 13:17:14 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMijgFodHRwczovL3d3dy5uYmN3YXNoaW5ndG9uLmNvbS9uZXdzL2xvY2FsL3RyYW5zcG9ydGF0aW9uL25ldmVyLXNlZW4tYW55dGhpbmctbGlrZS1pdC1kcml2ZXJzLXN0cmFuZGVkLWZvci0xNS1ob3Vycy1vbi1pLTk1LWluLXZpcmdpbmlhLzI5MjY0NjQv0gGSAWh0dHBzOi8vd3d3Lm5iY3dhc2hpbmd0b24uY29tL25ld3MvbG9jYWwvdHJhbnNwb3J0YXRpb24vbmV2ZXItc2Vlbi1hbnl0aGluZy1saWtlLWl0LWRyaXZlcnMtc3RyYW5kZWQtZm9yLTE1LWhvdXJzLW9uLWktOTUtaW4tdmlyZ2luaWEvMjkyNjQ2NC8_YW1w?oc=5)
 ---
+### **Law enforcement ramps up security efforts ahead of 1-year anniversary of Capitol attack - CNN**
+#### Wed, 05 Jan 2022 01:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8wNC9wb2xpdGljcy9zZWN1cml0eS1qYW51YXJ5LTYtYW5uaXZlcnNhcnktY2FwaXRvbC9pbmRleC5odG1s0gEA?oc=5)
+---
