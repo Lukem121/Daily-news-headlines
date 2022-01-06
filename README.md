@@ -1070,3 +1070,6 @@
 ### **Law enforcement ramps up security efforts ahead of 1-year anniversary of Capitol attack - CNN**
 #### Wed, 05 Jan 2022 01:42:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiWWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8wNC9wb2xpdGljcy9zZWN1cml0eS1qYW51YXJ5LTYtYW5uaXZlcnNhcnktY2FwaXRvbC9pbmRleC5odG1s0gEA?oc=5)
 ---
+### **GOP commemorates denialism day - POLITICO**
+#### Thu, 06 Jan 2022 09:30:33 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3LnBvbGl0aWNvLmNvbS9uZXdzLzIwMjIvMDEvMDYvamFudWFyeS02LWdvcC1ldmVudHMtNTI2NTY50gEA?oc=5)
+---
