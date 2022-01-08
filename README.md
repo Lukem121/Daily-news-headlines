@@ -1076,3 +1076,6 @@
 ### **Jan 6 riot news – live: Trump refused ‘stay peaceful’ tweet, says aide as ex-president fumes at Biden speech - The Independent**
 #### Fri, 07 Jan 2022 10:36:44 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMic2h0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtcG9saXRpY3MvamFudWFyeS02LXRydW1wLWJpZGVuLWxpdmUtY2FwaXRvbC1yaW90LWIxOTg4NDI5Lmh0bWzSAQA?oc=5)
 ---
+### **White House bragging about Biden job gains draws social-media backlash - Fox News**
+#### Sat, 08 Jan 2022 07:48:21 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3doaXRlLWhvdXNlLWJpZGVuLWpvYnMtc29jaWFsLW1lZGlhLWJhY2tsYXNo0gFRaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vcG9saXRpY3Mvd2hpdGUtaG91c2UtYmlkZW4tam9icy1zb2NpYWwtbWVkaWEtYmFja2xhc2guYW1w?oc=5)
+---
