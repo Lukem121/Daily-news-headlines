@@ -1079,3 +1079,6 @@
 ### **White House bragging about Biden job gains draws social-media backlash - Fox News**
 #### Sat, 08 Jan 2022 07:48:21 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiTWh0dHBzOi8vd3d3LmZveG5ld3MuY29tL3BvbGl0aWNzL3doaXRlLWhvdXNlLWJpZGVuLWpvYnMtc29jaWFsLW1lZGlhLWJhY2tsYXNo0gFRaHR0cHM6Ly93d3cuZm94bmV3cy5jb20vcG9saXRpY3Mvd2hpdGUtaG91c2UtYmlkZW4tam9icy1zb2NpYWwtbWVkaWEtYmFja2xhc2guYW1w?oc=5)
 ---
+### **Europe, U.S. try to appear united in face off with Russia over Ukraine - NBC News**
+#### Sun, 09 Jan 2022 10:00:10 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvZXVyb3BlLXVzLXRyeS11bml0ZWQtdGFsa3MtcnVzc2lhLXVrcmFpbmUtcmNuYTExMzIx0gEqaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvcmNuYTExMzIx?oc=5)
+---
