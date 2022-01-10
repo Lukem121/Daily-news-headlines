@@ -1082,3 +1082,6 @@
 ### **Europe, U.S. try to appear united in face off with Russia over Ukraine - NBC News**
 #### Sun, 09 Jan 2022 10:00:10 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVmh0dHBzOi8vd3d3Lm5iY25ld3MuY29tL25ld3Mvd29ybGQvZXVyb3BlLXVzLXRyeS11bml0ZWQtdGFsa3MtcnVzc2lhLXVrcmFpbmUtcmNuYTExMzIx0gEqaHR0cHM6Ly93d3cubmJjbmV3cy5jb20vbmV3cy9hbXAvcmNuYTExMzIx?oc=5)
 ---
+### **Bronx apartment building fire than killed 19 people - including nine kids - caused by SPACE HEATER - Daily Mail**
+#### Mon, 10 Jan 2022 12:51:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LmRhaWx5bWFpbC5jby51ay9uZXdzL2FydGljbGUtMTAzODQzNDEvUGVvcGxlLXNlZW4tanVtcGluZy13aW5kb3dzLUJyb254LWFwYXJ0bWVudC1idWlsZGluZy1maXJlLmh0bWzSAQA?oc=5)
+---
