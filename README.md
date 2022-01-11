@@ -1085,3 +1085,6 @@
 ### **Bronx apartment building fire than killed 19 people - including nine kids - caused by SPACE HEATER - Daily Mail**
 #### Mon, 10 Jan 2022 12:51:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMicGh0dHBzOi8vd3d3LmRhaWx5bWFpbC5jby51ay9uZXdzL2FydGljbGUtMTAzODQzNDEvUGVvcGxlLXNlZW4tanVtcGluZy13aW5kb3dzLUJyb254LWFwYXJ0bWVudC1idWlsZGluZy1maXJlLmh0bWzSAQA?oc=5)
 ---
+### **Biden to amp up the pressure on the Senate to change filibuster rules for voting rights during Atlanta speech - CNN**
+#### Tue, 11 Jan 2022 13:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xMS9wb2xpdGljcy9iaWRlbi1hdGxhbnRhLXZvdGluZy1yaWdodHMtc3BlZWNoL2luZGV4Lmh0bWzSAQA?oc=5)
+---
