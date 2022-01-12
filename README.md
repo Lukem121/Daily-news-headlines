@@ -1088,3 +1088,6 @@
 ### **Biden to amp up the pressure on the Senate to change filibuster rules for voting rights during Atlanta speech - CNN**
 #### Tue, 11 Jan 2022 13:14:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xMS9wb2xpdGljcy9iaWRlbi1hdGxhbnRhLXZvdGluZy1yaWdodHMtc3BlZWNoL2luZGV4Lmh0bWzSAQA?oc=5)
 ---
+### **Boris Johnson apologizes for attending Downing Street party during lockdown - CNN**
+#### Wed, 12 Jan 2022 12:40:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xMi91ay9ib3Jpcy1qb2huc29uLXBtcXMtZG93bmluZy1zdHJlZXQtcGFydHktaW50bC1nYnIvaW5kZXguaHRtbNIBAA?oc=5)
+---
