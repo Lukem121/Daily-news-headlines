@@ -1091,3 +1091,6 @@
 ### **Boris Johnson apologizes for attending Downing Street party during lockdown - CNN**
 #### Wed, 12 Jan 2022 12:40:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xMi91ay9ib3Jpcy1qb2huc29uLXBtcXMtZG93bmluZy1zdHJlZXQtcGFydHktaW50bC1nYnIvaW5kZXguaHRtbNIBAA?oc=5)
 ---
+### **Boris Johnson: UK ministers offer support despite calls for resignation - NPR**
+#### Thu, 13 Jan 2022 10:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5ucHIub3JnLzIwMjIvMDEvMTMvMTA3MjY4Nzg1MC91ay1taW5pc3RlcnMtYXJlLWNsb3NpbmctcmFua3MtYXJvdW5kLWJvcmlzLWpvaG5zb24tYW1pZC1jYWxscy1mb3ItaGlzLXJlc2lnbmF0aT9mdD1ucHJtbCZmPdIBAA?oc=5)
+---
