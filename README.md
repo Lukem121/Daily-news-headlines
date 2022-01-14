@@ -1094,3 +1094,6 @@
 ### **Boris Johnson: UK ministers offer support despite calls for resignation - NPR**
 #### Thu, 13 Jan 2022 10:58:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMihgFodHRwczovL3d3dy5ucHIub3JnLzIwMjIvMDEvMTMvMTA3MjY4Nzg1MC91ay1taW5pc3RlcnMtYXJlLWNsb3NpbmctcmFua3MtYXJvdW5kLWJvcmlzLWpvaG5zb24tYW1pZC1jYWxscy1mb3ItaGlzLXJlc2lnbmF0aT9mdD1ucHJtbCZmPdIBAA?oc=5)
 ---
+### **Vaccine mandate news – live: Biden ‘disappointed’ Supreme Court blocked ‘common-sense life-saving’ Covid rule - The Independent**
+#### Fri, 14 Jan 2022 06:44:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtc3VwcmVtZS1jb3VydC1jb3ZpZC12YWNjaW5lLW1hbmRhdGUtbGF0ZXN0LWIxOTkyOTE1Lmh0bWzSAQA?oc=5)
+---
