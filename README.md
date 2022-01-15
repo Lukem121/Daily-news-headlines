@@ -1097,3 +1097,6 @@
 ### **Vaccine mandate news – live: Biden ‘disappointed’ Supreme Court blocked ‘common-sense life-saving’ Covid rule - The Independent**
 #### Fri, 14 Jan 2022 06:44:08 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtc3VwcmVtZS1jb3VydC1jb3ZpZC12YWNjaW5lLW1hbmRhdGUtbGF0ZXN0LWIxOTkyOTE1Lmh0bWzSAQA?oc=5)
 ---
+### **New CDC guidelines say cloth masks less protective than other face coverings - New York Post **
+#### Sat, 15 Jan 2022 02:18:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIyLzAxLzE0L2NkYy1zYXlzLWNsb3RoLW1hc2tzLWxlc3MtcHJvdGVjdGl2ZS10aGFuLW90aGVyLWZhY2UtY292ZXJpbmdzL9IBYWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIyLzAxLzE0L2NkYy1zYXlzLWNsb3RoLW1hc2tzLWxlc3MtcHJvdGVjdGl2ZS10aGFuLW90aGVyLWZhY2UtY292ZXJpbmdzL2FtcC8?oc=5)
+---
