@@ -1100,3 +1100,6 @@
 ### **New CDC guidelines say cloth masks less protective than other face coverings - New York Post **
 #### Sat, 15 Jan 2022 02:18:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIyLzAxLzE0L2NkYy1zYXlzLWNsb3RoLW1hc2tzLWxlc3MtcHJvdGVjdGl2ZS10aGFuLW90aGVyLWZhY2UtY292ZXJpbmdzL9IBYWh0dHBzOi8vbnlwb3N0LmNvbS8yMDIyLzAxLzE0L2NkYy1zYXlzLWNsb3RoLW1hc2tzLWxlc3MtcHJvdGVjdGl2ZS10aGFuLW90aGVyLWZhY2UtY292ZXJpbmdzL2FtcC8?oc=5)
 ---
+### **Texas officials say all hostages safe, out of Colleyville synagogue; hostage-taker dead - Fort Worth Star-Telegram**
+#### Sun, 16 Jan 2022 09:30:26 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3LnN0YXItdGVsZWdyYW0uY29tL25ld3MvbG9jYWwvY3JpbWUvYXJ0aWNsZTI1NzM2MDg2Mi5odG1s0gEA?oc=5)
+---
