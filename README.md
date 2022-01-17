@@ -1103,3 +1103,6 @@
 ### **Texas officials say all hostages safe, out of Colleyville synagogue; hostage-taker dead - Fort Worth Star-Telegram**
 #### Sun, 16 Jan 2022 09:30:26 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiRGh0dHBzOi8vd3d3LnN0YXItdGVsZWdyYW0uY29tL25ld3MvbG9jYWwvY3JpbWUvYXJ0aWNsZTI1NzM2MDg2Mi5odG1s0gEA?oc=5)
 ---
+### **Texas synagogue siege: Teens held in UK as Briton named as hostage-taker - BBC News**
+#### Mon, 17 Jan 2022 12:12:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiJGh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy91ay02MDAxOTI1MdIBKGh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy91ay02MDAxOTI1MS5hbXA?oc=5)
+---
