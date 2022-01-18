@@ -1106,3 +1106,6 @@
 ### **Texas synagogue siege: Teens held in UK as Briton named as hostage-taker - BBC News**
 #### Mon, 17 Jan 2022 12:12:15 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiJGh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy91ay02MDAxOTI1MdIBKGh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy91ay02MDAxOTI1MS5hbXA?oc=5)
 ---
+### **First images of Tonga volcano damage show entire communities covered in thick ash - CNN**
+#### Tue, 18 Jan 2022 12:32:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xOC9hc2lhL3RvbmdhLXZvbGNhbm8tdHN1bmFtaS1kYW1hZ2UtaW50bC1obmsvaW5kZXguaHRtbNIBAA?oc=5)
+---
