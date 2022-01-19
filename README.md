@@ -1109,3 +1109,6 @@
 ### **First images of Tonga volcano damage show entire communities covered in thick ash - CNN**
 #### Tue, 18 Jan 2022 12:32:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xOC9hc2lhL3RvbmdhLXZvbGNhbm8tdHN1bmFtaS1kYW1hZ2UtaW50bC1obmsvaW5kZXguaHRtbNIBAA?oc=5)
 ---
+### **New York attorney general's office says it has identified numerous 'misleading statements and omissions' in Trump Org. financial statements - CNN**
+#### Wed, 19 Jan 2022 12:33:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMibWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8xOS9wb2xpdGljcy9uZXcteW9yay1hdHRvcm5leS1nZW5lcmFsLXRydW1wLW9yZ2FuaXphdGlvbi1pbnZlc3RpZ2F0aW9uL2luZGV4Lmh0bWzSAXFodHRwczovL2FtcC5jbm4uY29tL2Nubi8yMDIyLzAxLzE5L3BvbGl0aWNzL25ldy15b3JrLWF0dG9ybmV5LWdlbmVyYWwtdHJ1bXAtb3JnYW5pemF0aW9uLWludmVzdGlnYXRpb24vaW5kZXguaHRtbA?oc=5)
+---
