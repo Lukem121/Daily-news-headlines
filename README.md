@@ -1115,3 +1115,6 @@
 ### **Voting bill collapses, Democrats unable to change filibuster - Associated Press**
 #### Thu, 20 Jan 2022 05:37:23 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiM2h0dHBzOi8vYXBuZXdzLmNvbS9mNmMyY2ZkOWY3OWExNjU4YzI5OThmM2I3YjE0NTg4ZNIBAA?oc=5)
 ---
+### **Late Night Celebrates One Year of President Biden - The New York Times**
+#### Fri, 21 Jan 2022 07:07:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjIvMDEvMjEvYXJ0cy90ZWxldmlzaW9uL2ppbW15LWZhbGxvbi1wcmVzaWRlbnQtYmlkZW4uaHRtbNIBAA?oc=5)
+---
