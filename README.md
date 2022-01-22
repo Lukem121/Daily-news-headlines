@@ -1118,3 +1118,6 @@
 ### **Late Night Celebrates One Year of President Biden - The New York Times**
 #### Fri, 21 Jan 2022 07:07:24 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVGh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjIvMDEvMjEvYXJ0cy90ZWxldmlzaW9uL2ppbW15LWZhbGxvbi1wcmVzaWRlbnQtYmlkZW4uaHRtbNIBAA?oc=5)
 ---
+### **An NYPD officer was killed and another seriously injured in a shooting while responding to a domestic incident - CNN**
+#### Sat, 22 Jan 2022 13:16:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiP2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8yMS91cy9ueXBkLW9mZmljZXJzLXNob3QvaW5kZXguaHRtbNIBQ2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjIvMDEvMjEvdXMvbnlwZC1vZmZpY2Vycy1zaG90L2luZGV4Lmh0bWw?oc=5)
+---
