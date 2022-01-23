@@ -1121,3 +1121,6 @@
 ### **An NYPD officer was killed and another seriously injured in a shooting while responding to a domestic incident - CNN**
 #### Sat, 22 Jan 2022 13:16:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiP2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8yMS91cy9ueXBkLW9mZmljZXJzLXNob3QvaW5kZXguaHRtbNIBQ2h0dHBzOi8vYW1wLmNubi5jb20vY25uLzIwMjIvMDEvMjEvdXMvbnlwZC1vZmZpY2Vycy1zaG90L2luZGV4Lmh0bWw?oc=5)
 ---
+### **UK warns Russia will face severe sanctions if it installs Ukraine 'puppet regime' - Reuters**
+#### Sun, 23 Jan 2022 11:08:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL2V1cm9wZS9ydXNzaWEtZmFjZXMtc2V2ZXJlLXNhbmN0aW9ucy1pZi1pdC1pbnN0YWxscy1wdXBwZXQtcmVnaW1lLXVrcmFpbmUtdWstbWluaXN0ZXItMjAyMi0wMS0yMy_SAQA?oc=5)
+---
