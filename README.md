@@ -1124,3 +1124,6 @@
 ### **UK warns Russia will face severe sanctions if it installs Ukraine 'puppet regime' - Reuters**
 #### Sun, 23 Jan 2022 11:08:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMif2h0dHBzOi8vd3d3LnJldXRlcnMuY29tL3dvcmxkL2V1cm9wZS9ydXNzaWEtZmFjZXMtc2V2ZXJlLXNhbmN0aW9ucy1pZi1pdC1pbnN0YWxscy1wdXBwZXQtcmVnaW1lLXVrcmFpbmUtdWstbWluaXN0ZXItMjAyMi0wMS0yMy_SAQA?oc=5)
 ---
+### **NATO allies put forces on standby as tensions rise over Ukraine crisis - CNN**
+#### Mon, 24 Jan 2022 12:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8yNC9ldXJvcGUvbmF0by1kZXBsb3ltZW50LWVhc3Rlcm4tZXVyb3BlLXVrcmFpbmUtaW50bC9pbmRleC5odG1s0gEA?oc=5)
+---
