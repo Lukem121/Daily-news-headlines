@@ -1127,3 +1127,6 @@
 ### **NATO allies put forces on standby as tensions rise over Ukraine crisis - CNN**
 #### Mon, 24 Jan 2022 12:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiXGh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8yNC9ldXJvcGUvbmF0by1kZXBsb3ltZW50LWVhc3Rlcm4tZXVyb3BlLXVrcmFpbmUtaW50bC9pbmRleC5odG1s0gEA?oc=5)
 ---
+### **Peter Doocy: Fox News reporter labelled ‘a stupid son of a b****’ by Joe Biden - The Independent**
+#### Tue, 25 Jan 2022 11:38:52 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtcG9saXRpY3MvYmlkZW4tcGV0ZXItZG9vY3ktZm94LW5ld3Mtc29iLWIxOTk5OTM2Lmh0bWzSAQA?oc=5)
+---
