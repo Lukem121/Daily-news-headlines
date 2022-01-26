@@ -1130,3 +1130,6 @@
 ### **Peter Doocy: Fox News reporter labelled ‘a stupid son of a b****’ by Joe Biden - The Independent**
 #### Tue, 25 Jan 2022 11:38:52 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiamh0dHBzOi8vd3d3LmluZGVwZW5kZW50LmNvLnVrL25ld3Mvd29ybGQvYW1lcmljYXMvdXMtcG9saXRpY3MvYmlkZW4tcGV0ZXItZG9vY3ktZm94LW5ld3Mtc29iLWIxOTk5OTM2Lmh0bWzSAQA?oc=5)
 ---
+### **This Silicon Valley city just voted to institute first-in-the-nation gun ownership requirements - CNN**
+#### Wed, 26 Jan 2022 11:17:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiR2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8yNi91cy9zYW4tam9zZS1ndW4tbGF3LXdlZG5lc2RheS9pbmRleC5odG1s0gEA?oc=5)
+---
