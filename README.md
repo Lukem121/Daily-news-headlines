@@ -1133,3 +1133,6 @@
 ### **This Silicon Valley city just voted to institute first-in-the-nation gun ownership requirements - CNN**
 #### Wed, 26 Jan 2022 11:17:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiR2h0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8yNi91cy9zYW4tam9zZS1ndW4tbGF3LXdlZG5lc2RheS9pbmRleC5odG1s0gEA?oc=5)
 ---
+### **Biden will get a chance to fill a Supreme Court vacancy. Here's what to expect - NPR**
+#### Thu, 27 Jan 2022 10:00:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMi8wMS8yNy8xMDc1ODIzNDc2L2JpZGVuLXN1cHJlbWUtY291cnQtbm9taW5hdGlvbtIBAA?oc=5)
+---
