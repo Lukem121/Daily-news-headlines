@@ -1136,3 +1136,6 @@
 ### **Biden will get a chance to fill a Supreme Court vacancy. Here's what to expect - NPR**
 #### Thu, 27 Jan 2022 10:00:27 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiSGh0dHBzOi8vd3d3Lm5wci5vcmcvMjAyMi8wMS8yNy8xMDc1ODIzNDc2L2JpZGVuLXN1cHJlbWUtY291cnQtbm9taW5hdGlvbtIBAA?oc=5)
 ---
+### **Late Night Supports Biden’s Supreme Court Strategy - The New York Times**
+#### Fri, 28 Jan 2022 13:08:38 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiaWh0dHBzOi8vd3d3Lm55dGltZXMuY29tLzIwMjIvMDEvMjgvYXJ0cy90ZWxldmlzaW9uL2xhdGUtbmlnaHQtdHJldm9yLW5vYWgtc3VwcmVtZS1jb3VydC1taW5uaWUtbW91c2UuaHRtbNIBAA?oc=5)
+---
