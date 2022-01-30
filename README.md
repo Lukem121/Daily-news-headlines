@@ -1142,3 +1142,6 @@
 ### **US East Coast hunkers down as 'bombogenesis' snowstorm hits - BBC News**
 #### Sat, 29 Jan 2022 11:59:41 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiMWh0dHBzOi8vd3d3LmJiYy5jb20vbmV3cy93b3JsZC11cy1jYW5hZGEtNjAxNzc5NznSATVodHRwczovL3d3dy5iYmMuY29tL25ld3Mvd29ybGQtdXMtY2FuYWRhLTYwMTc3OTc5LmFtcA?oc=5)
 ---
+### **The worst of the nor'easter that slammed the Northeast with record snowfall has passed, but 'dangerously cold' wind chills remain in some areas - CNN**
+#### Sun, 30 Jan 2022 09:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8zMC93ZWF0aGVyL25vcmVhc3Rlci1ib21iLWN5Y2xvbmUtc3Rvcm0tc3VuZGF5L2luZGV4Lmh0bWzSAQA?oc=5)
+---
