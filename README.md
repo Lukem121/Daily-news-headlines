@@ -1145,3 +1145,6 @@
 ### **The worst of the nor'easter that slammed the Northeast with record snowfall has passed, but 'dangerously cold' wind chills remain in some areas - CNN**
 #### Sun, 30 Jan 2022 09:34:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMiVWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8zMC93ZWF0aGVyL25vcmVhc3Rlci1ib21iLWN5Y2xvbmUtc3Rvcm0tc3VuZGF5L2luZGV4Lmh0bWzSAQA?oc=5)
 ---
+### **Ahmaud Arbery's family attorney vows to oppose federal plea deal with Travis and Gregory McMichael on hate crime charges in 2020 murder - CNN**
+#### Mon, 31 Jan 2022 11:26:00 GMT - Link to article: [Here](https://news.google.com/__i/rss/rd/articles/CBMieWh0dHBzOi8vd3d3LmNubi5jb20vMjAyMi8wMS8zMS91cy90cmF2aXMtYW5kLWdyZWctbWNtaWNoYWVsLXBsZWEtZGVhbC1haG1hdWQtYXJiZXJ5LWZlZGVyYWwtaGF0ZS1jcmltZS1jaGFyZ2VzL2luZGV4Lmh0bWzSAQA?oc=5)
+---
